@@ -834,4 +834,54 @@ view. Having broken our gaze, i turned away, trying to think about situation at
 hand. But i was much too shocked to actually process everything that happened
 and in the end all my thoughts concentrated on Sasha, kissing and my feelings.
 
-—
+— Sorry, — she whispered after a while, her voice giving away doubt, — you
+didn't like it?
+
+I had no idea what to say and only let out a sigh.
+
+— Well, i suppose i'm not good enough. That's only to be expected.. — she wanted
+to continue, but suddenly a melody started to play, which was soon revealed to
+be her ring tone.
+
+Sasha hung up furiously, almost ready to throw smartphone onto the ground. She
+put it back into her pocket instead, but still couldn't continue whatever she
+wanted to say. A new sound caught our attention, now coming from inside the
+building: someone's footsteps were approaching the door. Then the door opened
+and a guy from the party appeared.
+
+At first i thought he would say we should go back inside or something, but he
+offered me his phone instead.
+
+— Isabella? — he asked to confirm my identity, — there's a man who wants to talk
+to you urgently.
+
+His voice sounded surprised and even more so disturbed. Reluctantly, i took the
+phone from his hand.
+
+    ***
+
+""
+
+    ***
+
+— Be careful, mind the weather, for you request is fulfilled, — said the
+familiar voice in the same familiarly tired tone.
+
+— Blue? — i asked mechanically, too surprised to react properly on the meaning
+of his words.
+
+— So i am indeed. Lets meet at the station at the dawn, — he said that and hung
+up. For a few seconds i listened for short beeps and then returned phone to its
+owner.
+
+    ***
+
+"Of all minor demons everyone should have their favourite", a distorted voice
+said through the radio noise in a brightly sunlit room, filled with old
+furniture, "for someone who doesn't will have to deal with greater demons. And i
+can say from experience that it is painful".
+
+Voice paused and only static could be heard for a while. Then something clicked
+and the voice started again: "Of all minor demons everyone..."
+
+    ***
