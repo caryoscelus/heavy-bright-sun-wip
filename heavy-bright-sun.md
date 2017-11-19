@@ -982,4 +982,38 @@ quickly.
 dramatic low voice, — i don't know what your quest is, or whether you have a
 quest, but i hope this could be of assistance.
 
-Having finished his line, he gave me a small.
+Having finished his line, he gave me a small package, wrapped in brown paper. As
+usual in such situations, my paranoia got activated and almost made me refuse
+offer. But i supposed the risk is worth taking and reluctantly took the package.
+
+— Thank you very much, — i said after a short pause.
+
+— Yeah, thanks, — Sasha added, her voice giggling.
+
+— Ha-ha, you welcome. I won't put me in your way any longer, — replied Orpheus
+and moved back to the party room, — Good bye.
+
+— Yeah, see ya later, — Sasha turned to me indicating we should go.
+
+— Bye, Orpheus, — i concluded and finally continued descending.
+
+Глава Восьмая
+-------------
+
+Chapter Nine
+------------
+
+    ***
+
+— So what was that spectacle with the present about? — i asked Sasha who was
+starting the car.
+
+— Ah, that? Remember i said i'm a fanfic writer? Well, i don't only write
+text-only stories, i've been participating in a few indie game circles, — Sasha
+finally fired up the engine and inspected me, — All set? Then forward we go!
+
+Our old sedan started unexpectedly sharply, forcing me into the back of my seat.
+
+— So, as i was saying, i was involved with making a few small scale games. One
+of them we were making with Orpheus. Actually, it was he who introduced me to
+gaming and gamedev in the first place.
