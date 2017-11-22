@@ -1063,7 +1063,7 @@ amount of lies communicated".
 — Йо, — отвечает Куроки Макото, высокий парень в очках, формально являющийся
 главой кружка.
 
-Девушка рядом с ним — Сайонджи Сэнри — чуть не подпрыгивает от удивления.
+Девушка рядом с ним — Саёньджи Сэнри — чуть не подпрыгивает от удивления.
 
 — Нанда, омаэтачи ка? — немного успокоившись, она говорит чуть раздражённо, —
 Джёдо ёкатта, — добавляет она затем, кивая. Несколько чёрных локонов падает ей
@@ -1078,8 +1078,8 @@ amount of lies communicated".
 Начинается запись не слишком увлекательно: камера трясётся, на изображении виден
 хорошо знакомый мне двор. Съёмка, очевидно, шла из школы.
 
-— Мёоно джикен щираберу тамени, канщкамера сэту щимащита, — всё так же лениво
-начинает объяснения Накамото.
+— Мёоно джикен щираберу тамени, канщкамера ва сэттэй щимащита, — всё так же
+лениво начинает объяснения Накамото.
 
 Камера наконец успокаивается, уставившись в одну точку неподалёку от школьных
 ворот и изображение стало практически статичным. Лишь порхание листьев на ветру,
@@ -1295,22 +1295,55 @@ and moved back to the party room, — Good bye.
 — Bye, Orpheus, — i concluded and finally continued descending.
 
 
-Глава Восьмая
+Глава восьмая
 -------------
 
 — Рензу митаини — говорю я, смешивая подлинное и поддельное удивление в голосе.
 
-— Соно тори дэс! Даре ка ва ватащтачи о миттэ иру! — вступает в разговор ?*?*?.
+— Соно тори дэс! Даре ка ва ватащтачи о миттэ иру! — вступает в разговор Макото.
 
 — Со-со, канщкамера ва канщкамера о рекоду щмащта. Фил зэ айрони, — восклицает
-%%%%%.
+Юки.
+
+Да уж, надо будет рассказать оператору про эту айрони!
+
+— Дэ, доо омоу но, Лёща? — спрашивает Макото.
+
+— Щирабетэ щинакча соно камера о.
+
+— Сонна кото атаримай дещё, — отвечает мне Накамото, — Кедо, осой. Соно рекоодо
+ва киноо.
+
+— Кёо ва чеку щимащита, соре дэ, моо инай, — добавляет Накамото.
+
+В глубине души я вздыхаю с облегчением.
+
+— Мондай дэс нэ, — говорю я вслух, — Джя, койцура ва ёру ни канщкамера сэттэй то
+нара ватащтачи ва найто вижён га хицуёо.
+
+— Найто вижён ка? — Саёньджи вопросительно наклоняет голову — Ии соре. Дэмо,
+доко ни тэ ни иремасс?
+
+— Нэтто ни щирабе мащё. Макото-кун, онэгай дэкиру? — предлагает Юки.
+
+— Хай-хай, — Макото покорно садится за компьютер.
+
+На этом совещание кончается; перемена тоже подходит к концу и большинство из нас
+разбредается по классам. Мы с Накамото идём вместе, пока она не сворачивает в
+свой класс. Перед тем как зайти, она оборачивается и бросает на меня
+подозрительный взгляд, но ничего не говорит и вскоре отворачивается.
+
+    ***
 
 
 
 Chapter Nine
 ------------
 
-Spectacle of spectacles.
+Lambda is the alpha,
+And tau is twice pi,
+And gamma rays, happy gamma rays
+Penetrated all over me.
 
     ***
 
@@ -1350,27 +1383,112 @@ probably have been better preserved as inner joke.
 
 Our conversation died at that and next five or so minutes we drove in silence.
 
+    ***
+
+Spectacle of spectacles was truly spectacular. It could have won any possible
+award humanity could create. It could have changed human destiny forever.
+
+It could have, but nobody watched it. Nobody. Ever.
+
+    ***
+
+Watching winter dawn from the pedestrian bridge over railway station wasn't
+something i had been doing very often. As a matter of fact, that day it was the
+first time i did so. The picture was pretty impressive.
+
+It wasn't the stereotypical "first sun rays emerged from the red horizon and lit
+the surroundings" or whatever is usually said about such occasions. In fact, we
+did not see neither sun nor its rays at all: the eastern sky was filled with
+clouds.
+
+Still, those clouds weren't too thick and the change from dark grey to yellowish
+grey to pink to bright yellow was beautiful. And yet another thing was the
+ghost-looking town awakening. Old multi-storey apartment buildings first looked
+like simple black shadows, with only few lit windows. Then they started to turn
+grey, light in windows was flipping on and off. And as they turned grey, their
+true state started to show.
+
+I wouldn't have been surprised if i would be told that town had been hit by war.
+Buildings were visibly disintegrating, some apparently abandoned, with empty
+windowless frames; some still inhabited, despite half of the roof being
+collapsed.
+
+Then, the cars. Of those few we could see, all were either old or covered in a
+brown dirt, or both. Some were just empty car skeletons. There was still little
+snow on them, but i imagined most of those cars will turn into car-shaped snow
+mountains later in the winter.
+
+Then, there were trees. Dead-looking, weirdly shaped trees, which Sasha
+described as "our mutant trees".
+
+This may sound depressive, but to me the whole picture, especially in its
+dynamic, was beautiful. Perhaps, it was a certain harmony between ever-changing
+ever-lasting sky and slowly dying human dwelling. Perhaps it was my deeply
+hidden hatred towards all human. It doesn't really matter.
+
+— Train's coming, — said Sasha returning me back to reality.
+
+I refrained from a bad pun and instead gazed into direction she pointed at.
+There was a train there alright. Or at least something that looked and sounded
+like a train. But compared to modern train we rode in a day before, this was a
+relic of the past. Even from that distance i could see its weird angled shapes,
+its old pantographs, its driver seats.
+
+Slowly we started descending to the platform. We had no need to haste for the
+train wasn't in a hurry either.
+
+Only when it arrived did i realize that Sasha was still with me despite my
+somewhat secret meeting with Blue. I looked at her. She stared back.
+
+— There's no need to worry about such details, — she said, as if answering to my
+unspoken thoughts.
+
+    ***
 
 
 
+    ***
 
+Only one person left the train on the platform and for a moment i thought that
+maybe the whole train was riding only to get him here. Of course, it was Blue;
+of course, he was still wearing black leather. And apparently he wasn't
+surprised to see me in a company.
 
+While he was walking towards us, the train left the station.
 
+— Morning, ladies, — Blue said, still hopelessly trying to sound british.
 
+— Hello, Mr.Blue, — Sasha answered first. Her voice betrayed mix of excitement
+and confidence in her superiority.
 
+I mumbled something for a greeting.
 
+— The job is done, the pay is due, — he then cut straight to business,
+never-minding Sasha's present.
 
+— But of course, — i replied. And then, after a pause, added, — What were his
+words?
 
+— Didn't say nothing dramatic. Asked me to return a rooster that he owed to a
+neighbour.
 
+— So that's how it was, huh?.. Did you return the rooster?
 
+— Oh yeah, i did. Had a few troubles with that damn bird.
 
+I put right hand into the inner pocket of my jacket and after a bit of search
+took a piece of paper out of it that looked like an old school shop cheque.
 
+— "????", — i said, — original edition, of course.
 
+Blue took the paper and inspected it curiously.
 
+— Interesting way of doing business you have indeed, — he said, pocketing the
+precious thing, — Do you always use such rare ones?
 
+— At the very least i use those whose authors had been dead for at least seventy
+years.
 
+— The rumors about your humor were certainly unexaggerated.
 
-
-
-
-
+All the while Sasha stood silently, few steps away from us.
