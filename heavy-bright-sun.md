@@ -878,7 +878,7 @@ now filled with blue, both the color and the mood.
     ***
 
 "Go on, go on, go on", somebody preached in the darkness. And then repeated
-those tiny useless words a half dozen more. And then again, and again, and
+those tiny useless words a half dozen times more. And then again, and again, and
 again. It no longer sounded like an urge to continue, but it attained a certain
 beat to it that was pushing forward, until it succeeded to surface.
 
@@ -929,7 +929,7 @@ Let the spring show the creation, let the summer show the life, let the autumn
 show the bewilderment and let the winter show the wisdom.
 
 "Bommm" — the bell ringed, filling the neighbourhood. But there was nobody to
-hear it and eventually silent won.
+hear it and eventually the silence won.
 
     ***
 
@@ -1335,6 +1335,148 @@ and moved back to the party room, — Good bye.
 
     ***
 
+— Мата соно бунгаку щицу аримащта? — как обычно, Щиньджи встречает меня своим
+бормотанием.
+
+— Дагара, бунгаку щицу джя най, — как обычно, с небольшим раздражением отвечаю
+я.
+
+Вскоре звонок прерывает нашу перепалку и в класс входит учитель.
+
+Урок химии проходит как обычно скучно. Впрочем, мне есть чем заняться.
+
+Для начала отправляю оператору короткое предупреждение: "Ur cam was found. B
+careful". Разбираться с деталями будем потом.
+
+Затем я открываю на смарте Ницше и принимаюсь читать.
+
+    ***
+
+Не дожидаясь последнего звонка, я начинаю собираться. В комитет я сегодня не
+собираюсь, но всё же надо предупредить кого-нибудь из наших. Поэтому как только
+звонок наконец звенит я сразу выхожу из класса и направляюсь к 1-А.
+
+Ждать мне приходится недолго; не проходит и полминуты, как оттуда выходит
+Накамото Рэй в компании одноклассниц.
+
+— Накамото-сан, — обращаюсь я к ней, когда она, попрощавшись с ними, идёт в
+сторону лестницы.
+
+— Лёща?.. Масака, "бущицу ни иканай" то йуу цумури?
+
+— Дощтэ сонна кото мадэ ни вакару?
+
+— А-а, йахари. Дэйто суру н дэска?
+
+— Чигау! Дойцу мо, койцу мо. Нандэ минна ва дэйто щка омоэнай?
+
+— Даттэ, анта но ханно ва омощирой дагара.
+
+— Сонна кото ва рью ни нареру ка ё? Маттаку, коно сэкай ва акьта... Дэ, букацу
+ва ёрощку нэ?
+
+— Маа, щёганай. Джя, мата ащта.
+
+— Джя нэ.
+
+На этом мы распрощались и я наконец иду на первый этаж.
+
+    ***
+
+Уже выйдя из школьных ворот, я понимаю, насколько был прав этим утром. На улице
+действительно ад, форменный ад. Дорога вверх на холм превращается в сущую пытку.
+Как же я сейчас завидую тем, чей дом в противоположной стороне!
+
+Но делать нечего. Вместе с остальными неудачливыми школьниками и случайными
+прохожими я поднимаюсь наверх под палящим солнцем.
+
+...
+
+Преодолев холм, я сворачиваю налево и для виду захожу в супермаркет. Конечно,
+такая конспирация вовсе ни к чему, но с другой стороны было бы странно ожидать
+другого от такого человека как я.
+
+Как типичный школьник, я покупаю какие-то сладости, даже названия которых не
+знаю. Кассир со скучным лицом пробивает их и отдаёт сдачу. Прежде чем выйти из
+магазина, я проверяю, нет ли кого на улице, но по этому переулку мало кто ходит
+днём и там закономерно пусто.
+
+Делаю последний вдох кондиционированного воздуха и выхожу обратно в пекло.
+Впрочем, по сравнению с подъёмом на холм простая прогулка вполне терпима. Чтобы
+скоротать путь я достаю наушники и включаю подборку летнего рока. Можно было бы
+конечно и наоборот что-нибудь зимнее поставить, чтобы попытаться охладить
+атмосферу, но сейчас я предпочитаю что-то соответствующее погоде.
+
+"Нацу оясуми,
+ай нэва вил белив
+Кими но усо ни
+
+Антил зэ энд
+
+Ай вил белив ин ми,
+Нацу оясуми
+..."
+
+Навязчивый мотив застрял в моей голове и даже когда песня окончилась я не никак
+не могу подстроиться под ритм следующей. Впрочем, идти уже осталось не больше
+пары минут и я попросту выключаю плеер, чтобы не насиловать свой слух. "Нацу
+оясуми", снова звучат абсурдные строчки в моей голове.
+
+Но вот наконец я подхожу к своей цели. Это небольшой двухэтажный дом за увитым
+декоративными растениями металлическим забором. Я нажимаю кнопку звонка на
+калитке и жду ответа.
+
+Из дома начинает раздаваться подозрительный шум и я понимаю, что мне придётся
+простоять под нещадными лучами ещё несколько минут. Я лишь вздыхаю.
+
+Наконец, электронный замок на калитке открывается, а из двери дома выходит
+девушка, изо всех сил пытающаяся скрыть очевидный факт того, что я разбудил её
+звонком.
+
+— Охайо, Лёща-кун, — говорит она, подавляя зевок.
+
+— Охайо, ХХХХХХХХ-сан. ёку нэмури мащта ка?
+
+Не отвечая, она отворачивается и проходит в глубь дома.
+
+— Оджямащимас, — я захожу в дом, снимаю ботинки и прохожу вслед за ней на кухню.
+
+ХХХХХХХХ-сан уже готовит свой "утренний" кофий.
+
+— If you realize my sleeping needs, why do you come so early? — наконец говорит
+она, ставя передо мной чашку ароматного напитка.
+
+— Maybe i'm trying to turn in you into a good citizen who sleeps at night and
+works at day? — произношу я шутливо.
+
+— Кьсо, don't make such a happy face when i feel so down. You should be happy
+enough that i let you in my house at this hour. Кьсо, talk about kids these
+days.
+
+Она отпивает из своей чашки и кривит недовольную мину: очевидно кофий ещё
+слишком горяч.
+
+— What do you want anyway?
+
+— "Аната ни миттэру тамени" то юуно до да?
+
+— Кьсо, маджимени щитэ. You have something to talk about, don't you? You didn't
+like my latest editing?
+
+— That's not it, relax. You're doing a great job, — я делаю маленький глоток
+кофия, — I just need some inside info, that's all.
+
+— Кьсо, again?.. Well, i don't really mind. Дага на, — на её лице проступает
+улыбка, — кими но яксоку обоэру! Джянто гохан цукуреро но маини нанимо ватасанай
+кара!
+
+Довольная собой, она делает несколько глотков, поднимается со стула и подходит к
+окну.
+
+— Ии тэньки, ии тэньки!
+
+— Маа, щькатанай ка, — протягиваю я. На самом деле я конечно знал, что в конце
+концов всё придёт именно к этому.
 
 
 Chapter Nine
@@ -1445,7 +1587,8 @@ unspoken thoughts.
 
     ***
 
-
+Dark static was spreading through the veins of the city. Someone's terror was
+feeling its lungs. Soon there will be no more.
 
     ***
 
@@ -1458,8 +1601,8 @@ While he was walking towards us, the train left the station.
 
 — Morning, ladies, — Blue said, still hopelessly trying to sound british.
 
-— Hello, Mr.Blue, — Sasha answered first. Her voice betrayed mix of excitement
-and confidence in her superiority.
+— Hello, Синий, — Sasha answered first. Her voice betrayed mix of excitement and
+confidence in her superiority.
 
 I mumbled something for a greeting.
 
@@ -1492,3 +1635,257 @@ years.
 — The rumors about your humor were certainly unexaggerated.
 
 All the while Sasha stood silently, few steps away from us.
+
+— So are you two acquainted or what? — i finally asked question that had been
+bothering me for a while.
+
+— Hmm, how should i put it?.. — Blue considered this a bit and finally added, —
+Everybody knows Sasha in these parts. And as much as i don't like trusting
+famous people, i have no doubts about her.
+
+— And, — Sasha added, — despite Синий is not as famous as me, i'm well informed
+enough to know him.
+
+And so the pieces of the puzzle started to fall in place.
+
+    ***
+
+There was a knock on the door, then two more. Then, nothing.
+
+Five minutes later air conditioner turned on, relieving the room from various
+scents which were the last evidence of events which perhaps never happened.
+
+Глава десятая
+-------------
+
+Chapter Eleven
+--------------
+
+— I suppose you'll have no trouble finding me if you have any problems with coin
+transfer, — i said to finish small talk that was taking way too much time.
+
+— And you'll have no trouble contacting me if you have any more questions on the
+job, — Blue replies.
+
+— I'm sure that won't be necessary. Now if you would excuse me, i have some
+other business to attend.
+
+— It was a pleasure to work with you.
+
+And after a few more lines of too polite goodbyes we finally parted our ways.
+That is, Blue remained on the platform to wait for a train and i went back into
+the town. Sasha followed me, without asking anything until we went far enough
+away. Then she finally said:
+
+— So you actually do have some business in our town?
+
+— Well, not exactly. It's a long story that i'm not even sure i want to talk
+about. Anyhow, lets find some place to sit down and drink some coffee. I really
+need some caffeine right now.
+
+— Hmm, i'm not sure local cafe would be a good idea. As far as i know the
+history of this town, there was only one good cafe and it didn't last a year.
+
+— That's really sad.
+
+— Ha-ha, it won't be understatement to call this place "Sad Town".
+
+— What about canned coffee then? Or is it also sad in these parts?
+
+— Mostly. The one you can buy in most supermarkets is a masterpiece of
+awfulness. But there is one place that's different. We'll have to cross railways
+again though.
+
+Until then we walked slowly on a dirty street parallel to railroad. According to
+a sign on one of old wooden cottage, it was called "Привокзальная улица". After
+Sasha suggested moving across, we simply turned into a narrow alley between two
+fences and then walked through the rails.
+
+— But wasn't that the "cultural center" of the town? — i said referring to a
+little square near the station on the side that we just left, — Isn't there
+nothing but rural outskirt where we are going?
+
+— I suppose that's true. But there's one small detail. There is a highway there
+and that's where we are heading to. See, the center is for this town's people.
+And as tiny as it is, the shop on gas station is for "outsiders". And there's a
+long-standing tradition that outsiders deserve the best.
+
+— Tradition?
+
+— Well, it's not only a tradition. It's also a simply economical thing. Nobody
+would buy product that's few time more expensive than its cheap "analogue" in
+the town.
+
+— Even if the cheap option is total crap?
+
+— Even if the cheap option is crap, — Sasha repeated, — Well, you've seen the
+town yourself, didn't you? How do you think people live there?..
+
+I didn't know what to answer. It's not like i've never seen poverty before. It's
+not like i should have been surprised by it. Yet i always did. It always felt
+absurd to me that people have to waste their lives on mostly useless ineffective
+work for a miserable rewards and are willing to do it.
+
+The rest of our way we walked in silence.
+
+    ***
+
+"But what is lie?", continued the abstract voice, "Is it really as simple as a
+boolean value?"
+
+The voice made a long pause, sipping the no less abstract beverage.
+
+"To define something, we need a language, but what if it in itself is a lie?",
+it then continued again.
+
+    ***
+
+— Два горячих кофе и пачку эклеров, — Sasha ordered in the gas station shop and
+then turned to me, — You don't mind sweets, do you?
+
+— Sure. I'd take black coffee though, if there's a choice, — i answered
+
+— Кофе-то какой? — asked her a woman voice from the other side of the glass
+counter filled with products.
+
+— Один чёрный и один со сливками, — replied Sasha and put a few banknotes on the
+money plate.
+
+Couple minutes later we were sitting on a bench of a seemingly abandoned bus
+station. It was a strange replacement of cafe, but i didn't mind. There was some
+sense of childish adventure in drinking coffee with eclairs on an empty bus
+station on a highway that was the most bright symbol of travel in the dying
+town.
+
+Despite all the differences, i could easily imagine this was my home town and i
+was a teenager looking into the distance and nurturing plans of escape.
+
+— I wish we could just thumb a ride away from this place, — i said, thinking
+aloud.
+
+— Why can't we? — Sasha replied after processing what i said for a while.
+
+— It's not that we can't. It's just that we can do it million other ways. I'm
+not bound to this place, or my home town, or any other particular place. And yet
+i still want to escape sometimes, but there's no place to escape to. And after
+all these centuries of fantasizing of space travel we are still stuck to Earth.
+
+I gulped down the remaining coffee and continued ranting:
+
+— But then when i think deeper, i start thinking that maybe it doesn't really
+matter and the now fantastic sounding prospect of leaving our old planet will
+cease to be amazing in a matter of a few weeks... I hope i didn't bore you with
+my rants?
+
+— Not at all. I can understand that this town could bring anybody in a
+depressive mood.
+
+— Well, i'm not really depressed. It's more of a nostalgic feeling, i guess. I
+feel like i've become a disillusioned adult and the excitement and fun of the
+youth is over for me.
+
+— Is that really so? You seem to be leading pretty exciting life as far as i can
+tell. You certainly don't look like a boring adult who returns home after work,
+lies on couch and complains about life while watching sports.
+
+— Well, you just described the perfect image of what i'd hate to live, so
+obviously i did everything in order to prevent that happening to me. Really, you
+shouldn't take my rants too seriously, i guess i just like to complain
+sometimes.
+
+— Ok. Well, if you need an audience, i can always listen to your complaints.
+
+Sasha finished her coffee and thrown the empty can to the trash bin.
+
+— Thanks.
+
+I replied and tried to repeat her trick, but failed miserably: my can hit the
+trash bin instead of falling into it. I got up and went to pick it up.
+
+After i returned we sat in silence for a while, looking at the car stream.
+
+    ***
+
+"The metaphorical value of loneliness lies in its universality." was written on
+an otherwise blank page of the infinite book opened somewhere in the middle.
+Other books on the desk were closed and arranged in stacks. There were eight
+desks in the room, also filled with books and the room itself was only one of
+the countless rooms in the library. But all the other books were closed.
+
+    ***
+
+It was still quite early in the morning and i still felt like relaxing, yet i
+also wanted to confirm the job results. It's not like i didn't trust Blue, the
+last words he conveyed were a pretty solid proof, but i wasn't only interested
+in making justice or vengeance or whatever it should be called; i also wanted to
+see the consequences.
+
+One of my secondary reasons to visit a cafe was to see if local news would
+contain any mentions of the subject. But since we didn't go to cafe, i had to
+fulfill my curiosity in other way.
+
+I spent some time considering how to approach this subject in a subtle way, but
+when i finally decided to straight away ask Sasha if she had a smartphone with
+her, she spoke first.
+
+— I don't really want to intrude, — she hesitated, — but.. i thought maybe you
+would be in a mood to tell about your business here?..
+
+— Heh, you're pretty persistent, aren't you. As i said, it's a long story. And i
+gotta say my throat is pretty tired of talking in a cold over a highway noise
+background. So if you're sure you need to know this, lets find a calmer place.
+
+— A calmer place, huh? We can return to the Orpheus' place, if you'd like. That
+would take another ride, though, — Sasha thought for a while and then added, —
+Actually, i do know another place where we can stay relatively warm. It's kind
+of peculiar place.
+
+— Really? What is it?
+
+— Well, it's a.. how should i call it? The station watchman's place. He's an old
+acquaintance of mine. My parents' friend.
+
+— Will it be ok to intrude upon him like that?
+
+— Don't worry about *that*. He's an old man who likes a company, so what you
+should be worried about is that it might be hard to have a private talk. Well,
+the fact that you don't know russian certainly helps though.
+
+— Well, if you say so.. I don't really mind, — i yawned, — Oh, and by the way,
+we'd really need to sleep before getting back to business. Initially i planned
+to stay at the party place, but now that we're back at station, i'm not sure
+we'd want to drive back after sleepless night.
+
+— Hmm, now that you mention it, i start feeling i didn't sleep in a while.
+Perhaps we can take a nap at old man's place, if you don't mind sleeping on an
+old couch.
+
+— Anything would do in these circumstances. Lead the way.
+
+
+Глава двенадцатая
+-----------------
+
+Chapter Thirteen
+----------------
+
+Глава четырнадцатая
+-------------------
+
+Chapter Fifteen
+---------------
+
+Sitting in a comfortable seat of an air charter flying across continent, i tried
+to forget about the cold harsh reality of outside world that lay both in the
+past and the future of that unexpected flight. Well, sometimes i think that, on
+the contrary, it is those moments of relaxation and thinking that are reality
+and the rest of my life is not much different from a film or a video game.
+
+But how much of this is really worth considering and how much of it is just
+playing with language? Useless question.
+
+Back then, in that plane i didn't really think of these highly abstract concepts
+that i sometimes like to ponder on now. Back then, after successively ridding my
+mind of present problems, it uncontrollably sunk into past.
+
+
