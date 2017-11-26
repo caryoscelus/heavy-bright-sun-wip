@@ -1458,29 +1458,38 @@ days.
 Она отпивает из своей чашки и кривит недовольную мину: очевидно кофий ещё
 слишком горяч.
 
-— What do you want anyway?
+— What do you want anyways?
 
 — "Аната ни миттэру тамени" то юуно до да?
 
-— Кьсо, маджимени щитэ. You have something to talk about, don't you? You didn't
+— Кьсо, маджимени щитэ. You have something to talk about, don't ya? You didn't
 like my latest editing?
 
-— That's not it, relax. You're doing a great job, — я делаю маленький глоток
-кофия, — I just need some inside info, that's all.
+— That's not it, relax. You're doing a great job, — я делаю маленький глоток из
+своей чашки, — I just need some inside info, that's all.
 
 — Кьсо, again?.. Well, i don't really mind. Дага на, — на её лице проступает
-улыбка, — кими но яксоку обоэру! Джянто гохан цукуреро но маини нанимо ватасанай
-кара!
+улыбка, — кими но яксоку ва обоэру! Джянто гохан цукуреро но маини нанимо
+ватасанай кара!
 
 Довольная собой, она делает несколько глотков, поднимается со стула и подходит к
 окну.
 
-— Ии тэньки, ии тэньки!
+— Ии тэньки, ии тэньки! — произносит она с наигранной радостью и потягивается.
 
 — Маа, щькатанай ка, — протягиваю я. На самом деле я конечно знал, что в конце
 концов всё придёт именно к этому.
 
+Надо сказать, что несмотря на частый обмен колкостями, мы с Кирихарой-сан —
+довольно близкие друзья. Вообще говоря, это неудивительно: несмотря не разницу в
+возрасте, у нас с самой первой встречи было много общего.
 
+Ну, во-первых, мы оба гайджины. Несмотря на японскую фамилию, Кирихара-сан лишь
+наполовину японка, а выросла и вовсе в штатах. И хотя мы оба свободно говорим на
+японском, язык — далеко не единственный культурный барьер и, как бы хорошо нас
+не готовили, некоторый "культурный шок" был неизбежен.
+
+И конечно, есть ещё одна причина.
 
 Chapter Nine
 ------------
@@ -1660,6 +1669,86 @@ scents which were the last evidence of events which perhaps never happened.
 
 Глава десятая
 -------------
+
+— Hey, you speak english, right? — так обратилась ко мне Кирихара-сан в первый
+день нашего знакомства — Нихон го ва моо акьта.
+
+Мы шли по ночному городу после первого совещания. Голова шла кругом после
+долгого дня: ещё утром я садился в самолёт во Владивостоке, а уже с полудня
+началось общее собрание в центре Токио.
+
+— Нани? Oh yeah, sure. I don't have much spoken experience though.
+
+— Well, it's fine as long as we understand each other. This day sure was tiring.
+Кьсо, even though i've been here for a week, i spent all of it sitting in my
+room like some hikkikomori and haven't adopted at all. Too much нихонго at the
+meeting almost made my head hurt.
+
+— Ha-ha, i can understand you. I might be used to watching anime, but being
+immersed into actual japanese society is a different thing.
+
+Какое-то время мы шли молча. Наконец, чтобы развеять несколько хмурую
+атмосферу, я произнёс:
+
+— Джя, ищщёни гамбаримас ка?
+
+— О! Гамбаро! — в тон мне ответила Кирихара и мы оба засмеялись.
+
+— By the way, i don't think i've remembered your first name at the meeting.
+Everybody uses last names all the time.. Oh, and i'm Jane, by the way.
+
+— I'm Алексей, or simply Лёша.
+
+— Ok, ёрощку нэ, Лёша.
+
+— Ёрощку, Jane.
+
+Мы опять рассмеялись. За разговором мы не заметили как отстали от группы и
+затерялись в толпе.
+
+— Well, looks like we got lost or something, — наконец заметил я.
+
+— Really? — похоже, она несколько удивилась этому, но не приняла всерьёз, — Oh,
+i believe that won't be a problem. Нээ-сан ва аннаищмас агеру кара, — она
+добавила совсем уж шутливым голосом.
+
+— Мадьжи? — я попытался ответить ей в тон.
+
+— But of course. We'll be living in one neighbourhood. You didn't know?
+
+— Ah, they probably said something like that, but it could have easily slipped
+past me.
+
+— Вакару, вакару. Джя, i suppose we can enjoy ourselves then and leave the
+others to themselves. That said, i've no idea how high-schoolers like to spent
+their time these days.
+
+— Don't ask me, i'm not an expert of shounen psychology.
+
+— Hmm... Джя, what would you like to do? Well, we can actually return home since
+it's getting pretty late. Дэмо, сэккаку киттанони, моттайнай дэс.
+
+"Что бы я хотел, да? Нечасто мне задают подобные вопросы", подумал я.
+
+— Well, if you ask me, i always wanted to go into a bar, but there's not much
+point in it without drinking, is there?
+
+— Huh, do you want to become adult that badly?
+
+— It's not really about being adult. It's just that i always акогарета that
+atmosphere. "Double whiskey, straight" and then you sit there at the bar and
+think your depressive thoughts. And maybe someone notices you and asks what's
+wrong or something. Now that i think about it, it sounds like a stupid childish
+dream.
+
+— Hmm, i suppose i've never thought about it like that. My father was a heavy
+drinker back when i was a kid and seeing him made me hate alcohol. Of course,
+when i grew up, i stopped actually hating it. But there was no romantic aureole
+around it for me.
+
+Мы продолжали идти по ночной улице. Навстречу нам попадались в основном пьяные
+компании и влюблённые парочки.
+
 
 Chapter Eleven
 --------------
@@ -1869,6 +1958,34 @@ old couch.
 Глава двенадцатая
 -----------------
 
+— Гохан ва мада? — доносится голос Джейн из ванной. Иногда мне кажется, что у
+неё совершенно отсутствует чувство такта.
+
+— Мада-мада, — без особого энтузиазма отвечаю я, продолжая нарезать зелёный лук.
+
+Покончив с луком, я принимаюсь за прочую зелень. Затем кидаю всё это в
+салатницу, добавляю соли и немного специй и поливаю маслом. Наконец, перемешиваю
+и отправляю салат на стол.
+
+Вернувшись к плите, проверяю состояние супа. На вкус уже ничего, но всё же ещё
+немного неготов. Ну что же, можно присесть отдохнуть.
+
+Подумав так, я вдруг замечаю краем глаза какое-то движение. Мгновенно
+развернувшись на сто восемьдесят градусов, я обнаруживаю Джейн со своей
+"средней" камерой в дверном проёме.
+
+— Don't worry, this is for my private collection, — оправдывается она, немного
+покраснев, — I just like to watch you cooking; thought it'd look even better if
+edited.
+
+— And there i thought that at least at these moments i'm not under surveillance.
+Do you realize it's not that easy to feel that scrutinizing gaze all the time?..
+
+— Комен, — Джейн наконец опускает камеру и относит её в комнату.
+
+
+
+
 Chapter Thirteen
 ----------------
 
@@ -1876,6 +1993,170 @@ While nobody was looking, the bottle silently disappeared into the void.
 
     ***
 
+In response to Sasha's knocking, the door creaked violently and opened. The old
+man was shining with a smile.
+
+— Саша, как же я давно тебя не видел! — he hugged her almost violently, ignoring
+me for the time being.
+
+— Здравствуй, дядь Вань. Ну не души же меня так, — Sasha's voice sounded like
+she was prepared for this.
+
+I stood still for a while, mindlessly inspecting the pair and the background:
+badly lit cabin that looked like it used to be a freight train car. That was, on
+one hand, natural since it was in the end a railway facility. But on the other
+hand, it was a stark contrast to the shiny skyscrapers of railway monopoly i've
+seen the day before.
+
+— Ладно, давайте я вас всё же познакомлю, — Sasha said addressing both of us, —
+Lets get acquainted.
+
+— Bella, — i extended my hand. The old man looked at it hesitantly at first, but
+then finally understood the gesture and chuckled.
+
+— Иван, — he said, gently shaking my hand, — ну, проходите внутрь, не стойте на
+пороге.
+
+He made inviting gesture and went inside. We followed. When Sasha closed the
+door, i felt a bit claustrophobic for it became very dark compared to the
+outside. But then Ivan opened the curtains and the light level became
+comfortable.
+
+— Ну что, проходите, проходите, чай уже горячий, правда у меня одни галеты, —
+Ivan spoke somewhat fussily, — Сладкого-то ничего нету. Ну, ты же знаешь, я
+сам-то не люблю, а гостей и не бывает почти.
+
+— Дядь вань, да ты не волнуйся. Мы уж перекусили.
+
+— Ну как же, угостить-то надо чем-нибудь.
+
+Finally we all settled around an improvised table, which consisted of a stool
+and a square piece of plywood on top of it. Ivan seated us on an old couch and
+sat on a small chair opposite to us.
+
+He poured us some black tea into small peculiar-looking ceramic cups. I took
+mine to my eye and inspected it closely. The bright painting on it, which at
+first i thought to be a pure abstraction, depicted two faces, looking in
+opposite directions. The background contained a blue sky, some city-like
+structure and a forest.
+
+— Бэлла, шпрэхен зи дойч? — suddenly Ivan addressed me in a language that
+definitely didn't sound russian, despite all the accent.
+
+"German?", i thought, but the accent was too bad to be sure.
+
+— Nein, nein, — i answered just in case.
+
+— Дядь Вань, ну я же говорила тебе, что она только по-английски говорит. Да ты
+же и сам всё равно немецкого не знаешь! — interrupted Sasha, — Please, don't
+mind him. As long as i knew him, he always liked to put that phrase in every
+conversation, even though he doesn't speak german.
+
+— Ну вот, Саша. Теперь ты про меня сплетни разводишь, а я-то даже и не пойму ни
+слова! И не жалко тебе старика?
+
+    ***
+
+When the voice finally got tired of repeating, only static remained. Still,
+there was nobody to turn off the radio and it continued working. Perhaps,
+forever, as if it was working on nuclear energy or something.
+
+    ***
+
+Having finished our tea, we sat like that in silence for a while. I could feel
+some tension and it wasn't hard to guess that it was my presence that caused it.
+But what could i do about it? It's not like i had anywhere to go, especially now
+that i finally started to feel terribly sleepy.
+
+— Should we smoke some weed, perhaps? — suggested Sasha, apparently feeling the
+same tenseness in the air.
+
+I could only wonder how often does she solve uneasy situation with weed. "Isn't
+it supposed to be solved with vodka in these parts?", a thought occurred to me,
+even though i couldn't take it seriously. Obviously, even correct statistical
+claims have nothing to with individuals.
+
+— Ha-ha, i'm not sure it's such a good idea after this night's trip.
+
+— Really? I thought it was pretty hilarious, — she giggled, — but hey, we can
+take lighter stuff, if you prefer.
+
+— Are you a secret drug dealer or something?
+
+— Eh, not really. It's not worth my time to sell stuff. So, how about it?
+
+— Well, if you insist. You'll have to deal with consequences if i drop asleep,
+though.
+
+— Don't worry, i've got experience, — she smiled and i felt a barely noticeable
+chill run through my spine.
+
+— Well, i suppose i don't mind a joint then, — replied i reluctantly.
+
+I was increasingly feeling that somehow i lost a huge deal of control of my life
+ever since i've entered that train that brought me here. Maybe that was the
+reason why i felt similarity between this place and the town i once escaped
+from?
+
+But probably not. This time lack of control didn't feel as bad. It was, in a
+way, me voluntarily resigning part of myself to experience life from another
+perspective.
+
+While i was thinking that, Sasha exchanged a few words with Ivan, who apparently
+was a big fan of weed as well. Which made me wondering whether it was him who
+introduced her to this habit.
+
+— All ready, — declared Sasha triumphantly and lit the joint, — Let's take a
+puff for our acquaintance! За знакомство!
+
+She inhaled and passed the cigarette to me. I followed the suit and passed it on
+to Ivan.
+
+    ***
+
+Dark clouds hung over the city. At first, nobody noticed them. But they were
+still hanging the next day. And the next one. And finally everyone came to
+understanding that they became a part of city and will never go away.
+
+    ***
+
+— So, now that we're in a warm place and have slept away, will you finally tell
+me your secrets? — a sweet voice whispered in my ear.
+
+— What are you talking about? — i could barely mumble this in response.
+
+I really wasn't feeling like talking or even accepting reality at all. I didn't
+notice when did it happen, but i was in a state of peculiarly pleasant void.
+
+— Your secrets, my darling, — now the voice was coming from my other ear.
+
+For a second i got confused and wanted to count my ears to make sure they are
+all still in place. Then i remembered i'm only supposed to have two.
+
+— They both are in place, — i mumbled again, just to answer something and get
+rid from this mysterious interrogator.
+
+— Aww, you're helpless. Well, tell me at least, what do you see? — now the voice
+was coming from literally nowhere, for all my ears were already used.
+
+— I see a room. Empty room, — i glanced into the darkness yet again, but was too
+afraid that it may look back and returned, — It's too dark.
+
+Somebody exhaled as if expressing disappointment.
+
+— Ладно, ладно, enjoy your dreams. I've got some writing to do anyway.
+
+Before i returned to my comfortable void, i could hear a keyboard tapping,
+appearing in a fast bursts.
+
+    ***
+
+"What is the point of the rain?", a godless entity pondered.
+
+"Why do i want the rain to have a point?", it thought on second day.
+
+"How should i measure the rain-ness of the point?", it still was thinking the
+same rain-vs-point problem on the third day.
 
 
 Глава четырнадцатая
@@ -1883,6 +2164,41 @@ While nobody was looking, the bottle silently disappeared into the void.
 
 Chapter Fifteen
 ---------------
+
+When i woke up, i found myself still in the same cabin, but the curtains were
+already closed and the light was turned on. Somewhere in the distance, Sasha and
+Ivan were discussing something in low voices. I stretched my body and got up.
+
+— And why are you waking up at such time of day, Izzy? — i mumbled to myself.
+
+— Hey, Bella? Did you get up? — asked Sasha.
+
+Suddenly, a hazy memory came back to me, but only for a brief moment.
+
+— Oh yeah, it seems that i made this mistake, — i answered, yawning.
+
+— Well, we wouldn't mind if you'd stay there for an hour or two more.
+
+— Maybe you wouldn't, but i've got things to do.
+
+— Ah yeah, your business. Maybe it's finally time to talk about it?
+
+— Maybe, maybe. Perhaps we should start with the local news though.
+
+— News, huh? Does it have anything to do with Blue?
+
+    ***
+
+
+
+    ***
+
+
+Глава шестнадцатая
+------------------
+
+Chapter Seventeen
+-----------------
 
 Sitting in a comfortable seat of an air charter flying across continent, i tried
 to forget about the cold harsh reality of outside world that lay both in the
@@ -2053,4 +2369,151 @@ least play one with friends.
 
 Yeah, considering the S.T.U.F.F. is coming out, it might be not a bad idea at
 all. Not at all a bad idea. At all a bad idea not—— No, i must stop myself,
-there way too many permutations.
+there are way too many permutations.
+
+...
+
+Ok, let me make a few calls and send a few messages and i'll be back.
+
+...
+
+So, i've contacted my old friend Orpheus and he happily invited me to a party.
+What a coincidence! He's planning a party just at the time i want to visit him.
+I guess maybe i underestimated this boring reality in the end. We'll see.
+
+...
+
+I've still got a few more days here to kill, though. So i should probably
+continue my rambling while i still can.
+
+Ah, but it is not so easy to write about myself in this boring hotel room, as it
+was in a suburb train. Maybe i should go out and find a better place to write?
+But then it's pretty cold outside...
+
+Aww, crap, doesn't matter. I'm too bored in these four wall.
+
+...
+
+And... i'm back. Back to writing, that is, not back to my room. I decided that
+writing out would indeed be a better thing and did the most obvious thing: went
+into a random cafe, ordered a coffee and a big choco ice-cream and opened my
+laptop.
+
+The cafe is almost empty, so i got my stuff pretty soon. And hey, it's
+surprisingly tasty, too!
+
+Hmm, it's a pity i'm not doing an illustrated book. Otherwise posting food photo
+would be very appropriate.
+
+"But, it's such a bad taste, Sasha!", the teacher returns.
+
+"You don't understand anything. Bad taste is the whole point here"
+
+...
+
+Are you wondering who is that teacher now? Please, don't embarrass yourself!
+
+...
+
+Lets talk about the waiters here. The one who attended me was a sleek young man
+with a slightly careless haircut (just between me and you, i know perfectly well
+how those "careless" are made and how they cost more than something more
+official).
+
+He certainly has a certain beauty (no, i refuse to use that stupid "handsome"
+word!), but there's something bland in his eyes. Good for a glamour journal, but
+not really all that interesting. Or at least, so he looks. It's not like i
+actually talked with him or something.
+
+Then, there's a short, somewhat clumsy waitress who walked past me a few times.
+She's attending that business-bandit-looking old man. I wouldn't be surprised if
+he called her just to enjoy the view, for she is quite cute.
+
+...
+
+Hmm, should i hit on her? What do you think?
+
+Yes, you, you, reader! Should i do it? Would you be entertained by that? Or
+maybe bored? I've no idea whether you even like romance, let alone some random
+lesbian encounters in cafe.
+
+...
+
+Ah well, sorry do disappoint you, but i'm not really in the mood. As much as i'm
+trying to pretend to be outgoing, deep inside i'm not the type to flirt with
+someone i don't especially like and just find attractive.
+
+So yeah, lets just order one more coffee and be off with it. I suppose i'm going
+to write enough for today by that point.
+
+...
+
+What else is there in this cafe? Yeah, i suppose you might be interested, if you
+are at all interested in my so called adventures.
+
+Let me see. On a first glance, it's a quintessence of a modern cafe trying hard
+to look older than it is. I suppose interior designer described their work as
+"Victorian", but in reality everything here shouts to you that it came fresh
+from a fully-automatic plant that could be only be fantasized about in Victorian
+era.
+
+Aww, i'm bad at describing surroundings, ain't i?
+
+...
+
+Whatever, my coffee has ended and i'm beginning to feel bored here. Lets hit the
+road.
+
+
+Sasha papers, pt III
+--------------------
+
+So here i am again, riding the train, but sorry, i'm not going to write much
+this time. Why? Cause i'm not alone now. I'm actually in a noisy company and i
+have to write this from my phone, pretending i'm sending an important message.
+
+Writing will have to wait until i have some more time to myself, even though i'd
+really to share my impression of my companions: it sure seems like my
+long-awaited adventure might have finally started.
+
+...
+
+Just checked in to say that i'm still too busy to write anything. Yeah, i've
+arrived at the party, ho-ho!
+
+...
+
+Hmm, it's really hard to get back to writing after so eventful times.
+
+Where should i start? In the ever-present now or from the moment that i stopped
+on?
+
+...
+
+Ok, lets start with now. I'm sitting on a chair inside an old freight train car,
+which for many years now functions as a home for the station watchman.
+
+Now, what am i doing here? And how did i get here?
+
+On one hand, i could just mention that the watchman is my old acquaintance and
+waive the rest of the questions off.
+
+On the other, that's not my goal. I'm suppose to be writing a memoir or
+something. So lets go into the past details.
+
+...
+
+I started this so called "chapter" in the train, so lets return there for a
+moment. I said i wasn't alone and indeed i was in a company of four other
+people, most of whom i just met that day.
+
+...
+
+Of all those people there was one who i found the most interesting (and also
+attractive). Her name is Isabella, or Bella for short.
+
+
+Sasha papers, pt IV
+-------------------
+
+
