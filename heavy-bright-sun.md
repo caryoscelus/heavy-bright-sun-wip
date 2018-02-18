@@ -759,7 +759,7 @@ and only one supposed ally and a semi-automatic in my hand.
 кого-то, кто заговорил бы со мной. Но, конечно, я не настолько популярен, чтобы
 быть в центре внимания каждую перемену и в итоге я возвращаюсь в класс ни с чем.
 
-— Дощите сонна као суруно, Лёща? Мата хьтори дэ аруку но ва цумаранай дэс ка? —
+— Дощитэ сонна као суруно, Лёща? Мата хьтори дэ аруку но ва цумаранай дэс ка? —
 встречает меня единственный человек, всегда готовый подбодрить меня своим
 излишним вниманием.
 
@@ -1326,7 +1326,7 @@ and moved back to the party room, — Good bye.
 нара ватащтачи ва найто вижён га хицуёо.
 
 — Найто вижён ка? — Саёньджи вопросительно наклоняет голову — Ии соре. Дэмо,
-доко ни тэ ни иремасс?
+доо яттэ тэ ни иремасс?
 
 — Нэтто ни щирабе мащё. Макото-кун, онэгай дэкиру? — предлагает Юки.
 
@@ -2220,17 +2220,22 @@ And then!..
     ***
 
 — So then, — i sipped strong black tea and continued, — you must be wondering
-who this xxxxx is. Well, as you might have seen, he's currently senator or
-something. But how do i happen to know a senator in these parts? Or maybe you
+who this Andrey Portnov is. Well, as you might have seen, he's currently senator
+or something. But how do i happen to know a senator in these parts? Or maybe you
 think i'm just a proxy contractor?
 
 — You might be, for all i know. But i suppose you'd be more secretive in that
 case.
 
-— Yeah, i suppose so. I don't even know why am i so carefree lately. Anyway, i
-suppose you can look up the guy's biography. He claims to be russian immigrant
-descendant. And i suppose that might be true. Back in the day when i knew him,
-he called himself Andrew ???.
+— Yeah, i suppose so. I don't even know why am i so carefree lately, — that is
+what i said, but i already had a more or less correct understanding of that. I
+accomplished my goal and, on one hand, had no need to be careful anymore; on the
+other, i wanted to celebrate, to relax — Anyway, i suppose you can look up the
+guy's biography, — i continued, — He claims to be russian immigrant descendant.
+And i suppose that might be true. Back in the day when i knew him, he called
+himself Andrew Portnau.
+
+
 
     ***
 
