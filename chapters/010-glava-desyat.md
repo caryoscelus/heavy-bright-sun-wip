@@ -1,5 +1,5 @@
-Глава десятая
--------------
+Глава десять
+------------
 
 — Hey, you speak english, right? — так обратилась ко мне Кирихара-сан в первый
 день нашего знакомства — Нихон го ва моо акьта.
@@ -11,15 +11,15 @@
 — Нани? Oh yeah, sure. I don't have much spoken experience though.
 
 — Well, it's fine as long as we understand each other. This day sure was tiring.
-Кьсо, even though i've been here for a week, i spent all of it sitting in my
-room like some hikkikomori and haven't adopted at all. Too much нихонго at the
-meeting almost made my head hurt.
+Кьсо, even though i've been here for a whole week, i've wasted it all sitting in
+my room like some hikkikomori and haven't adopted at all. Too much нихонго at
+the meeting almost made my head hurt.
 
 — Ha-ha, i can understand you. I might be used to watching anime, but being
-immersed into actual japanese society is a different thing.
+immersed into actual japanese society is quite a different experience.
 
-Какое-то время мы шли молча. Наконец, чтобы развеять несколько хмурую
-атмосферу, я произнёс:
+Какое-то время мы шли молча. Наконец, чтобы развеять несколько хмурую атмосферу,
+я произнёс:
 
 — Джя, ищщёни гамбаримас ка?
 
@@ -40,8 +40,8 @@ Everybody uses last names all the time.. Oh, and i'm Jane, by the way.
 — Well, looks like we got lost or something, — наконец заметил я.
 
 — Really? — похоже, она несколько удивилась этому, но не приняла всерьёз, — Oh,
-i believe that won't be a problem. Нээ-сан ва аннаищмас агеру кара, — она
-добавила совсем уж шутливым голосом.
+i believe that won't be a problem. Нээ-сан ва аннаищмас агеру кара, — добавила
+она совсем уж шутливым голосом.
 
 — Мадьжи? — я попытался ответить ей в тон.
 
@@ -67,13 +67,15 @@ point in it without drinking, is there?
 — Huh, do you want to become adult that badly?
 
 — It's not really about being adult. It's just that i always акогарета that
-atmosphere. "Double whiskey, straight" and then you sit there at the bar and
-think your depressive thoughts. And maybe someone notices you and asks what's
-wrong or something. Now that i think about it, it sounds like a stupid childish
-dream.
+atmosphere. "Double whiskey, straight", — я попытался произнести это подобающим
+тоном, но похоже вышло не очень, — and then you sit there at the bar and think
+your depressive thoughts. And maybe someone notices you and asks what's wrong or
+something.. Now that i think about it, it sounds like a stupid childish dream.
+
+Некоторое время мы молчали, а затем Джейн продолжила.
 
 — Hmm, i suppose i've never thought about it like that. My father was a heavy
-drinker back when i was a kid and seeing him made me hate alcohol. Of course,
+drinker back when i was a kid and watching him made me hate alcohol. Of course,
 when i grew up, i stopped actually hating it. But there was no romantic aureole
 around it for me.
 
@@ -82,3 +84,68 @@ around it for me.
 гайджинов и до некоторой степени именно так себя и ощущали.
 
 Дойдя до очередного перекрёстка, мы остановились.
+
+— I guess i watched too much of second-hand westerns, — чтобы что-то сказать,
+вернулся к теме я.
+
+— Second-hand westerns, huh, — задумчиво ответила Джейн — Sounds like you had a
+tough childhood.
+
+— Now that's a funny conclusion, — я начал терять ход её рассуждений.
+
+— Hmm, how should i say it? You seem to be influenced by pop culture more than
+by communication with peers. That must be сабищи for a kid.
+
+— Сабищи ка?..
+
+"А впрочем да, логично", подумал я, "Это ведь я только что рассуждал про
+depressive thoughts".
+
+— I don't meet people who i can talk to like this often. Especially teenagers, —
+она сказала это немного отстранённо, — But anyway, lets not just stay here. I've
+got an idea where we can go.
+
+Сказав это, Кирихара-сан хлопнула меня по плечу и, схватив за руку, потащила
+сквозь толпу в сторону.
+
+Всё ещё немного дезориентированный резкой сменой обстановки, посреди темноты и
+разбивающих её огней, я мог лишь послушно передвигать ноги, пытаясь не отстать
+от Джейн.
+
+За почти семнадцать лет своей жизни я до этого лишь раз бывал в "ночном городе",
+который к тому же не шёл ни в какое сравнение с ночным Токио. Стоит ли
+удивляться, что я по большей части плыл по течению ночи туда, куда меня тащила
+эта ещё совсем недавно незнакомая мне девушка?..
+
+Через несколько минут мы наконец выбрались из людского потока и вновь
+остановились. Когда изображение в глазах стабилизировалось, я увидел перед собой
+тускло святящуюся надпись:
+
+"Lasst alle Hoffnung fahren,
+die ihr hier eintretet"
+
+Ничего более. Ни перевода, ни подписи Cafe, ни иероглифов. Только эта надпись,
+как я догадался, на германском. И под ней тяжело выглядящая металлическая дверь.
+
+— Ласст алле хофнунг, — как будто задумчиво прочла начало надписи Джейн, а затем
+добавила — this is the place.
+
+Без дальнейших объяснений она распахнула дверь и мы двинулись внутрь по
+длинному, едва освещённому коридору. Пол был устлан приятным на ощупь и слегка
+шуршащим ковром и кажется уходил немного вниз. Впрочем, в полутьме понять было
+трудно, поле зрения сузилось до пары метров. Коридор, тем временем, расширялся,
+пока мы наконец не упёрлись взглядом в двустворчатую дверь. Из-за двери едва
+слышно пробивалась странная музыка.
+
+— Guten Abend, die Master — внезапно двери раскрылись и нас встретили две
+"горничных", — Lasst alle Hoffnung fahren.
+
+Они говорили хором, что поначалу даже показалось естественным, но по размышлении
+я решил, что такой естественности нельзя было бы добиться без тщательных
+репетиций. Японский акцент, если и присутствовал, не был заметен.
+
+Впрочем, это ретроспективно я могу уделять столь много внимания тому, как они
+говорили. А тогда я был отчасти шокирован внезапным приветствием на незнаком
+языке как будто сошедших с картинки персонажей.
+
+— Guten Abend, — как ни в чём ни бывало, ответила Джейн.

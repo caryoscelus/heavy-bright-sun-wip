@@ -1,5 +1,5 @@
-Глава двенадцатая
------------------
+Глава двенадцать
+----------------
 
 — Гохан ва мада? — доносится голос Джейн из ванной. Иногда мне кажется, что у
 неё совершенно отсутствует чувство такта.
@@ -8,7 +8,7 @@
 
 Покончив с луком, я принимаюсь за прочую зелень. Затем кидаю всё это в
 салатницу, добавляю соли и немного специй и поливаю маслом. Наконец, перемешиваю
-и отправляю салат на стол.
+и отправляю салат на обеденный стол.
 
 Вернувшись к плите, проверяю состояние супа. На вкус уже ничего, но всё же ещё
 немного неготов. Ну что же, можно присесть отдохнуть.
@@ -25,4 +25,24 @@ edited.
 Do you realize it's not that easy to feel that scrutinizing gaze all the time?..
 
 — Комен, — Джейн наконец опускает камеру и относит её в комнату.
+
+***
+
+***
+
+— Why should i repeat сонна атаримай кото? Sometimes i feel like i'm doing yet
+another lame school project. Кьсо, i expected those бака-тачи to be best among
+the best.
+
+..
+
+— Since we're doing video production, this twentieth century thing, they seem to
+think that they are modern. But beyond their narrow field they've barely learned
+lessons of nineteenth century.
+
+— Do you think human brain is enough to contain all human knowledge and also
+have time to put it to action?
+
+— Ватащтачи о, джинруи ва наменнайо! Or so i'd like to say.
+
 

@@ -7,9 +7,9 @@ Ivan were discussing something in low voices. I stretched my body and got up.
 
 — And why are you waking up at such time of day, Izzy? — i mumbled to myself.
 
-I had no chance to answer though.
+Me had no chance to answer though.
 
-— Hey, Bella? Did you get up? — asked Sasha, noticing i'm awake.
+— Hey, Bella? Did you get up? — asked Sasha, noticing my awakening.
 
 Suddenly, a hazy memory came back to me, but only for a brief moment.
 
@@ -33,7 +33,8 @@ Sasha turned to a laptop sitting on her knees and started typing. Tap-tap...
 Tap-tap.. Sounds of keyboard reminded me of something, but then Sasha
 interrupted.
 
-— Hmm, xxxxx.. was found strangled to death in a hotel number, that's it?
+— Hmm, Andrey Portnov.. was found strangled to death in a hotel number, that's
+it?
 
 For some reason these words that were but a translation of some news article
 finally made me realize that my vengeance was really over. I took a deep breath
@@ -45,7 +46,7 @@ and calmed myself.
 journalist, in the end.
 
 — Ah yeah.. Information leaks, — i paused, — So, now you know. I contracted Blue
-to kill that guy. But before i continue, lets drink some tea.
+to kill that guy. But before i continue i need another cup of tea.
 
     ***
 
@@ -56,9 +57,9 @@ And then!..
     ***
 
 — So then, — i sipped strong black tea and continued, — you must be wondering
-who this Andrey Portnov is. Well, as you might have seen, he's currently senator
-or something. But how do i happen to know a senator in these parts? Or maybe you
-think i'm just a proxy contractor?
+who this Andrey Portnov is. Well, as you might have seen, he's currently a
+senator or something. But how do i happen to know a senator in these parts? Or
+maybe you think i'm just a proxy contractor?
 
 — You might be, for all i know. But i suppose you'd be more secretive in that
 case.
@@ -66,15 +67,49 @@ case.
 — Yeah, i suppose so. I don't even know why am i so carefree lately, — that is
 what i said, but i already had a more or less correct understanding of that. I
 accomplished my goal and, on one hand, had no need to be careful anymore; on the
-other, i wanted to celebrate, to relax — Anyway, i suppose you can look up the
-guy's biography, — i continued, — He claims to be russian immigrant descendant.
-And i suppose that might be true. Back in the day when i knew him, he called
-himself Andrew Portnau.
+other, i wanted to celebrate, to relax.
 
+— Anyway, i suppose you can look up the guy's biography, — i continued, — He
+claims to be russian immigrant descendant. And i suppose that might be true.
+Back in the day when i knew him, he called himself Andrew Portnau. He wasn't
+very eager to discuss his ancestors to say the least.
 
+I took a few more sips of tea, making a pause to hide my emotions towards my
+freshly dead enemy.
+
+— He always strove for power, but i noticed that way too late. When he had come
+to our squadron, we all thought he was one of those flying fans. He acted like
+one anyway. Had a big collection of assorted copter and jet figurines, was
+boasting some prestigious pilot sims awards. Typical otaku who had the guts to
+go irl, that's what we thought of him.
+
+— It probably sounds banal, but we all had meals together, fought together...
+Nobody would think he would be a traitor. But then can you call someone who was
+never really on your side a traitor? He worked for Agency from the day zero, as
+he later admitted.
+
+Dark memories flooded my brain, almost making me want to vomit. But i've never
+had the ability to actually physically vomit from psychological trauma.
+
+— I'd thought i'd be able to talk about him now, after all these years, — i said
+with bitter irony, — but apparently those memories never fade. Let me be brief
+then. Portnau sold our squadron to the Agency, sending us onto a suicide
+mission; he didn't expect anyone to return.
 
     ***
 
+"I created this monster. I wanted it to be strong. I have no reasons to blame
+anybody, but myself."
 
+Having said that, the monster fighter started their last, unequal, hopeless
+fight.
 
     ***
+
+After finishing my story, i leaned back; a bad feeling in my mouth reminded me
+of an even earlier memory: my first cigarette in the school backyard. I laughed
+at the thought that the shy girl trying to look cool and then afraid of coughing
+out her lungs was also me. Or perhaps just imagined laughing, for i didn't
+actually hear the sound.
+
+

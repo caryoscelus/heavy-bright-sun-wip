@@ -6,7 +6,7 @@ this time. Why? Cause i'm not alone now. I'm actually in a noisy company and i
 have to write this from my phone, pretending i'm sending an important message.
 
 Writing will have to wait until i have some more time to myself, even though i'd
-really to share my impression of my companions: it sure seems like my
+really like to share my impression of my companions: it sure seems like my
 long-awaited adventure might have finally started.
 
 ...
@@ -31,7 +31,7 @@ Now, what am i doing here? And how did i get here?
 On one hand, i could just mention that the watchman is my old acquaintance and
 waive the rest of the questions off.
 
-On the other, that's not my goal. I'm suppose to be writing a memoir or
+On the other, that's not my goal. I'm supposed to be writing a memoir or
 something. So lets go into the past details.
 
 ...
@@ -42,5 +42,23 @@ people, most of whom i just met that day.
 
 ...
 
-Of all those people there was one who i found the most interesting (and also
-attractive). Her name is Isabella, or Bella for short.
+The only familiar face was Magister Occam, a person you might also recognize if
+you still remember talk shows popular ten years ago. Of course, my acquaintance
+with him is a bit different, but rumors of us being close friends are a bit
+overestimated.
+
+Next character: a horny-looking guy in his late twenties. Perhaps it's unfair
+for me to dismiss living people with labels like that, but who said i ought to
+be fair in these notes? Next.
+
+Red-haired (auto-correction suggests "red herring", lol) rocker in a white
+cloak. Someone to frame into a picture and put on the wall, almost a cartoon
+character. But much more nuanced and conflicted in real life. He certainly
+deserves a separate chapter (if not book) about him, but unfortunately my famous
+"omnipotence" is limited by time.
+
+And finally, of all those people there was one who i found the most interesting
+(and also attractive) and who is going to become an important character in my
+story. Her name is Isabella, or Bella for short.
+
+She appears to be trying to tone down her .

@@ -186,7 +186,7 @@ expect the unexpected.
 
     ***
 
-Slow fan made slow chopping sounds as its blades were cutting throw the thick
+Slow fan made slow chopping sounds as its blades were cutting through the thick
 dirty air. The air was always bad here, always hard to cut through, but the fan
 had to work without a minute's rest. Ever since it was launched, it never
 stopped. Ever since it was installed, it was never seen by a living being.
