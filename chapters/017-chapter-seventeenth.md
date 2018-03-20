@@ -1,10 +1,10 @@
-Chapter Seventeen
------------------
+Chapter Seventeenth
+-------------------
 
 Sitting in a comfortable seat of an air charter flying across continent, i tried
-to forget about the cold harsh reality of outside world that lay both in the
+to forget about the cold harsh reality of outside world that laid both in the
 past and the future of that unexpected flight. Well, sometimes i think that, on
-the contrary, it is those moments of relaxation and thinking that are reality
+the contrary, it is those moments of relaxation and thinking that are reality,
 and the rest of my life is not much different from a film or a video game.
 
 But how much of this is really worth considering and how much of it is just
@@ -16,4 +16,4 @@ my mind of present problems, it uncontrollably sunk into past.
 
     ***
 
-"...". Helicopter sounds filling my ears.
+

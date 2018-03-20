@@ -159,7 +159,7 @@ Somebody exhaled as if expressing disappointment.
 — Ладно, ладно, enjoy your dreams. I've got some writing to do anyway.
 
 Before i returned to my comfortable void, i could hear a keyboard tapping,
-appearing in a fast bursts.
+appearing in fast bursts.
 
     ***
 

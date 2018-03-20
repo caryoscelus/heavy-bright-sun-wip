@@ -61,4 +61,8 @@ And finally, of all those people there was one who i found the most interesting
 (and also attractive) and who is going to become an important character in my
 story. Her name is Isabella, or Bella for short.
 
-She appears to be trying to tone down her .
+At first she looked conspicuously mundane. Next moment i thought she did it on
+purpose. Then she turned around and no longer looked that mundane: her other eye
+was covered with fringe of hair; hiding behind it was stylish eye bandage.
+
+She sat down in front of me and smiled with a transient smile.

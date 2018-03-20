@@ -1,5 +1,5 @@
-Chapter Fifteen
----------------
+Chapter Fifteenth
+-----------------
 
 When i woke up, i found myself still in the same cabin, but the curtains were
 already closed and the light was turned on. Somewhere in the distance, Sasha and
@@ -112,4 +112,11 @@ at the thought that the shy girl trying to look cool and then afraid of coughing
 out her lungs was also me. Or perhaps just imagined laughing, for i didn't
 actually hear the sound.
 
+It was only then that i noticed that Ivan has silently disappeared. It must have
+been boring to listen to foreign speech indeed. Sasha seemed to be fascinated by
+the story, though she said nothing and i couldn't be sure about her reaction.
 
+Sounds of slow freight train that had been crawling around for a while suddenly
+caught my attention. I wondered what will happen if i walk away and sit on one
+of its flatcars. Then i tried to stop thinking my depressive thoughts and, after
+a few more seconds of hesitation, got up.

@@ -26,23 +26,29 @@ Do you realize it's not that easy to feel that scrutinizing gaze all the time?..
 
 — Комен, — Джейн наконец опускает камеру и относит её в комнату.
 
+Я вздыхаю и продолжаю готовить. Моя роль не предполагает возможности обидеться
+всерьёз, но как обычному школьнику мне всё же немного обидно.
+
 ***
+
+
 
 ***
 
 — Why should i repeat сонна атаримай кото? Sometimes i feel like i'm doing yet
 another lame school project. Кьсо, i expected those бака-тачи to be best among
-the best.
+best.
 
 ..
 
 — Since we're doing video production, this twentieth century thing, they seem to
 think that they are modern. But beyond their narrow field they've barely learned
-lessons of nineteenth century.
+lessons of nineteenth century!
 
 — Do you think human brain is enough to contain all human knowledge and also
 have time to put it to action?
 
-— Ватащтачи о, джинруи ва наменнайо! Or so i'd like to say.
+— Вареваре о, джинруи ва наменнайо! Or so i'd like to say, but you might have a
+point.
 
 
