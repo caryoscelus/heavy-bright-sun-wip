@@ -65,4 +65,17 @@ At first she looked conspicuously mundane. Next moment i thought she did it on
 purpose. Then she turned around and no longer looked that mundane: her other eye
 was covered with fringe of hair; hiding behind it was stylish eye bandage.
 
-She sat down in front of me and smiled with a transient smile.
+She sat down in front of me and smiled with a transient smile. When she looked
+me in the eyes, i was already captivated.
+
+...
+
+Oh, but this is not a romantic diary. Lets add some action.
+
+3..
+
+..2..
+
+.....1..
+
+Train started with mechanical sounds and hasted through the big city and away.
