@@ -1,4 +1,4 @@
-Chapter Three
+Chapter Third
 -------------
 
 Finally i sat on the floor near the wall — in a first place that was relatively

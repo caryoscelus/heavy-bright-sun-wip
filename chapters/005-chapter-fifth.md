@@ -1,5 +1,5 @@
-Chapter Five
-------------
+Chapter Fifth
+-------------
 
 The leaves were falling from the lotus tree. The days were getting shorter. It
 was, without a doubt, autumn. A time when everything either dies or at least

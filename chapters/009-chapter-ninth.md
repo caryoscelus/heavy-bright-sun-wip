@@ -1,5 +1,5 @@
-Chapter Nine
-------------
+Chapter Ninth
+-------------
 
 Lambda is the alpha,
 And tau is twice pi,

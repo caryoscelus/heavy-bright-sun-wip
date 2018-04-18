@@ -1,5 +1,5 @@
-Chapter Seven
--------------
+Chapter Seventh
+---------------
 
 I cannot quite understand whether it was my indecisiveness or slow reaction that
 led to those events. As soon as i fully understood what was happening, it was
