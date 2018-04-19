@@ -5,7 +5,7 @@ Chapter Eleventh
 transfer, — i said to finish small talk that was taking way too much time.
 
 — And you'll have no trouble contacting me if you have any more questions on the
-job, — Blue replies.
+job, — Blue replied.
 
 — I'm sure that won't be necessary. Now if you would excuse me, i have some
 other business to attend.
