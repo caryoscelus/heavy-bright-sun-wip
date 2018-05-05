@@ -36,7 +36,11 @@ Do you realize it's not that easy to feel that scrutinizing gaze all the time?..
 
 Но так, конечно, не может продолжаться вечно. Я выключаю газ и начинаю накрывать
 на стол. Кирихара-сан незаметно проходит в кухню и садится у окна. Видимо, всё
-ещё чувствует себя немного неловко. .
+ещё чувствует себя немного неловко. В такие моменты надо бы подкрепить это
+чувство вины, но вместо этого хочется напротив сгладить и простить. Впрочем,
+нельзя сказать, чтобы я умел это делать "explicitly".
+
+Так, в неловком молчании мы просидели несколько минут.
 
 ***
 
@@ -51,13 +55,19 @@ best.
 ..
 
 — Since we're doing video production, this twentieth century thing, they seem to
-think that they are modern. But beyond their narrow field they've barely learned
-lessons of nineteenth century!
+be thinking that they are modern. But beyond their narrow field they've barely
+learned lessons of eighteenth century!
 
 — Do you think human brain is enough to contain all human knowledge and also
 have time to put it to action?
 
-— Вареваре о, джинруи ва наменнайо! Or so i'd like to say, but you might have a
+— Вареваре ва, джинруи о наменнайо! Or so i'd like to say, but you might have a
 point. But at the very least it would be nice if they wouldn't be so arrogant.
 
+— Do you prefer humble people then? As far as i can tell, many of them are just
+too humble to be met.
 
+— Oh yeah, this fucking world has just too much of biases. And virtually none of
+them works to my advantage. Say, isn't that a good reason to drink?
+
+Сказав это, Кирихара-сан достала из холодильника две банки ...
