@@ -28,7 +28,7 @@ history of this town, there was only one good cafe and it didn't last a year.
 
 — That's really sad.
 
-— Ha-ha, it won't be understatement to call this place "Sad Town".
+— Ha-ha, it won't be overstatement to call this place "Sad Town".
 
 — What about canned coffee then? Or is it also sad in these parts?
 
@@ -37,13 +37,13 @@ awfulness. But there is one place that's different. We'll have to cross railways
 again though.
 
 Until then we walked slowly on a dirty street parallel to railroad. According to
-a sign on one of old wooden cottage, it was called "Привокзальная улица". After
-Sasha suggested moving across, we simply turned into a narrow alley between two
-fences and then walked through the rails.
+a sign on one of the old wooden cottages, it was called "Привокзальная улица".
+After Sasha suggested moving across, we simply turned into a narrow alley
+between two fences and walked through the rails.
 
 — But wasn't that the "cultural center" of the town? — i said referring to a
-little square near the station on the side that we just left, — Isn't there
-nothing but rural outskirt where we are going?
+little square near the station on the side we just left, — Isn't there nothing
+but rural outskirt where we are going?
 
 — I suppose that's true. But there's one small detail. There is a highway there
 and that's where we are heading to. See, the center is for this town's people.
@@ -92,7 +92,7 @@ counter filled with products.
 money plate.
 
 Couple minutes later we were sitting on a bench of a seemingly abandoned bus
-station. It was a strange replacement of cafe, but i didn't mind. There was some
+station. It was a strange cafe replacement, but i didn't mind. There was some
 sense of childish adventure in drinking coffee with eclairs on an empty bus
 station on a highway that was the most bright symbol of travel in the dying
 town.
@@ -135,12 +135,14 @@ sometimes.
 
 — Ok. Well, if you need an audience, i can always listen to your complaints.
 
-Sasha finished her coffee and thrown the empty can to the trash bin.
+Sasha finished her coffee and threw the empty can to the trash bin.
 
 — Thanks.
 
 I replied and tried to repeat her trick, but failed miserably: my can hit the
-trash bin instead of falling into it. I got up and went to pick it up.
+trash bin instead of falling into it. I got up and went to pick it up. For a few
+moments i was contemplating the irony of cleaning up your own trash in a place
+that is fillled with others'.
 
 After i returned we sat in silence for a while, looking at the car stream.
 
@@ -162,7 +164,7 @@ see the consequences.
 
 One of my secondary reasons to visit a cafe was to see if local news would
 contain any mentions of the subject. But since we didn't go to cafe, i had to
-fulfill my curiosity in other way.
+fulfill my curiosity in another way.
 
 I spent some time considering how to approach this subject in a subtle way, but
 when i finally decided to straight away ask Sasha if she had a smartphone with
