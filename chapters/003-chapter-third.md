@@ -7,7 +7,7 @@ right there was a circle of three people staring at a small flat screen hanging
 on the wall. Two of them were also gripping some controllers and clicking on
 buttons. Apparently they were playing some old-school game. I stared at the
 screen for a while, trying to understand what it was about, but then my
-attention was grabbed by someone patting on my shoulder.
+attention was grabbed by the shoulder.
 
 It was that same girl from before; apparently she took an interest in me or
 something. I still didn't know her name, so i opened my mouth to ask, but she
@@ -31,7 +31,7 @@ She tilted her head a bit, a gesture that looked well-rehearsed. I should admit
 it still looked pretty damn cool.
 
 — You're looking for someone, aren't ya? — she spoke in a such way that i could
-not possibly guess what she was implying, if she even implied anything.
+not possibly guess what she was implying, if she even did imply anything.
 
 — Maybe, — i tried to play along for a while and said that with a hint of smile.
 
@@ -70,21 +70,21 @@ And then, in a puff of smoke, the person seemed to disappear.
 
     ***
 
-There was a strange moment of silence and i became acutely aware of tension that
-have been accumulating in the "gamers' club" for a while now. It ended up with a
-muted explosion sound, followed by exasperated exclamation. Apparently those two
-finally lost their game. They got up, stretching their limbs, and went off,
-cursing loudly.
+There was a strange moment of silence and i became acutely aware of the tension
+that have been accumulating in the "gamers' club" for a while now. Finally it
+bursted out with a muted explosion sound, followed by exasperated exclamation.
+Apparently those two finally lost their game. They got up, stretching their
+limbs, and went off, cursing loudly.
 
-The third guy, who i dubbed "observer", continued to stare at the screen for a
-few dozen seconds and then looked at the room expectantly. When his gaze met
-mine, he stopped and said in a hopeful voice:
+The third guy, who i dubbed "observer" (since he wasn't playing), continued to
+stare at the screen for a few dozen seconds and then looked at the room
+expectantly. When his gaze met mine, he stopped and said in a hopeful voice:
 
 — Хочешь сыграть?
 
 I could guess he was asking me something, but there wasn't enough context to
-guess what it was about. His face started to look puzzled when i failed to reply
-or give any sign of understanding.
+understand the subject of the question. His face started to look puzzled when i
+failed to reply or give any sign of understanding.
 
 — He asks whether you want to play, — Sasha translated, rescuing both of us, —
 We could play together, if you'd like.
@@ -104,8 +104,9 @@ with anything better to say.
 
 — What are you talking about? Everybody is into this stuff these days! It's
 fucking S.T.U.F.F. — she literally pronounced it letter-by-letter and i was
-unsure whether that was to indicate significance of the word or a proper name, —
-And don't worry if you don't understand something: i'll be right here to help.
+unsure whether that was to indicate significance of the word or actually a
+proper name, — And don't worry if you don't understand something: i'll be right
+here to help.
 
 — But before you start, — the "observer" added, — i explain you couple things.
 First of all, i am master of game, Orpheus. Second: if you win, you get *prize*.
@@ -132,21 +133,21 @@ be so attracted to me.
 — Bella, on your right!
 
 At this point i already had no idea where did this voice come or whose voice it
-was, but i instantly dodged and turned back, ready to shoot. But when i saw what
-was coming, i ended up doing a couple more rollbacks before finally enjoying the
-sight of another explosion. This time it was a fucking helicopter falling onto
-the street. I started wondering how long it would take to escalate into nuclear
-shoot-out between starship squadrons.
+was, but i instantly dodged and turned back, ready to shoot. When i saw what was
+coming though, i ended up doing a couple more rollbacks before finally enjoying
+the sight of another explosion. This time it was a fucking helicopter falling
+onto the street. I started wondering how long it would take for this to escalate
+into a nuclear shoot-out between starship squadrons.
 
 But then a few moments later i was back in game, trying to find a peaceful place
 to heal. I ended up crashing through the windows into some fashion store and had
 to kill all the security guards who supposedly continued to protect the store,
 never-minding apocalypse happening on the streets. After the last guard dropped
-dead, i picked up first-aid box and started wondering what i was doing there.
+dead, i picked up first-aid box and started pondering on situation at hand.
 
 "What am i doing in this war-torn city? Who am i fighting? Who am i running away
 from?" — i thought while bandaging my blood-covered limbs. Then a warning voice
-returned me into battle-state:
+returned me into battle state:
 
 — We can't be staying here much longer. Sniper squad has already been deployed,
 they'll hunt us down quickly.
@@ -157,8 +158,8 @@ they'll hunt us down quickly.
 
 I threw away the remaining bandages and went running after Sasha, who was
 already approaching a small door with "Staff only" sign on it. Luckily for us,
-the door was open and there was nobody inside. We run throw the maze of
-corridors that finally led us to a badly lit stair well. I was amazed at how
+the door was open and there was nobody inside. We ran throw the maze of
+corridors that finally led us to a badly lit stairwell. I was amazed at how
 easily Sasha was choosing the right path as if she was familiar with the place.
 
 Our steps made hollow reverberated sounds as we ran down the stairs. For a while
@@ -171,7 +172,7 @@ wailing sounds, through the blood of my enemies and innocent by-standers,
 through the never-ending screams and curses?"
 
 I couldn't name a single reason, yet i continued running further down, continued
-to shoot back at hordes of faceless black jacket men who were attacking us in
+shooting back at hordes of faceless black jacket men who were attacking us in
 waves coming from one floor or another.
 
 Finally, after a seemingly endless descending, we came to a stop on the bottom
