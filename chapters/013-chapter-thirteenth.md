@@ -23,8 +23,11 @@ seen the day before.
 — Ладно, давайте я вас всё же познакомлю, — Sasha said addressing both of us, —
 Lets get acquainted.
 
-— Bella, — i extended my hand. The old man looked at it hesitantly at first, but
-then finally understood the gesture and chuckled.
+Even though she wanted to make us acquainted, she didn't bother to mention who
+was i. And it's not like i could give a satisfactory explanation myself.
+
+— Bella, — i extended my hand. The old man looked at it hesitantly for a few
+seconds, but then finally understood the gesture and chuckled.
 
 — Иван, — he said, gently shaking my hand, — ну, проходите внутрь, не стойте на
 пороге.
@@ -38,15 +41,15 @@ comfortable.
 Ivan spoke somewhat fussily, — Сладкого-то ничего нету. Ну, ты же знаешь, я
 сам-то не люблю, а гостей и не бывает почти.
 
-— Дядь вань, да ты не волнуйся. Мы уж перекусили.
+— Дядь Вань, да ты не волнуйся. Мы уж перекусили.
 
 — Ну как же, угостить-то надо чем-нибудь.
 
 Finally we all settled around an improvised table, which consisted of a stool
-and a square piece of plywood on top of it. Ivan seated us on an old couch and
-sat on a small chair opposite to us.
+and an almost square piece of plywood on top of it. Ivan seated us on an old
+couch and sat on a small chair opposite to us.
 
-He poured us some black tea into small peculiar-looking ceramic cups. I took
+He poured us some black tea into small peculiarly-looking ceramic cups. I took
 mine to my eye and inspected it closely. The bright painting on it, which at
 first i thought to be a pure abstraction, depicted two faces, looking in
 opposite directions. The background contained a blue sky, some city-like

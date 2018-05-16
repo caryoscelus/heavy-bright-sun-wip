@@ -1,8 +1,8 @@
 ...
 ---
 
-Engine starts with a familiar rising sound. I put the headphones on and it fades
-just a bit away.
+Engine starts with a familiar rising sound. I put the headphones on and the
+noise fades just a bit away.
 
 ???
 

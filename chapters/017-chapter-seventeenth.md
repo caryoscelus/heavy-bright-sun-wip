@@ -99,8 +99,8 @@ ago, even losing consciousness. I was always alone. I was never alone.
 
     ***
 
-The never-ending train. There is a head carriage, but there is no end. There is
-a departure station, but there is no destination.
+The never-ending train. There is a head carriage, but there is no tail one.
+There is a departure station, but there is no destination.
 
     ***
 
@@ -120,9 +120,9 @@ accent.
 
 — It's certainly reassuring that a man of your profession can still laugh.
 
-— On the contrary, nobody can do it without some laughs. It's really "life or
-die" in this business. I'm actually surprised how could you order somebody so
-cold-handedly and neither laughed nor cried about it.
+— On the contrary, nobody can do it without a few laughs now and then. It's
+really "laugh or die" in this business. I'm actually surprised how could you
+order somebody so cold-handedly and neither laughed nor cried about it.
 
 — How should you know that i haven't did either in private? Were *you* stalking
 me?
@@ -140,7 +140,7 @@ suggesting the plane that we were supposed to be in, — would not go anywhere
 unless *you* make it so.
 
 I hesitated for a while. My first reaction was to answer "what about you?", but
-then i supposed that this isn't a kind of question that would be answered. If he
+then i decided that this isn't a kind of question that would be answered. If he
 even meant anything, he would want me to get it myself without additional
 explanations.
 
@@ -151,7 +151,8 @@ He didn't reply "as you wish", but his silence seemed to suggest as much. No one
 spoke for a while. Then it occurred to me that there is no apparent reason for
 Blue's visit. Did he really come just for the small talk?
 
-— Actually, i did want to ask you something, — he answered my thoughts.
+— Actually, i did want to ask you something, — suddenly, he answered my
+thoughts.
 
 — Well, i didn't expect a man like you to visit me for no reason at all.
 
@@ -160,4 +161,6 @@ popular culture?
 
 — Feel free to change my opinion.
 
-— Thanks for permission. Anyway, i was ?????
+— Thanks for permission. Anyway, i wanted .
+
+

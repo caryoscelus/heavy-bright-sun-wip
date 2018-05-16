@@ -70,4 +70,12 @@ too humble to be met.
 — Oh yeah, this fucking world has just too much of biases. And virtually none of
 them works to my advantage. Say, isn't that a good reason to drink?
 
-Сказав это, Кирихара-сан достала из холодильника две банки ...
+Сказав это, Кирихара-сан достала из холодильника две банки холодного чая.
+Почему-то она не достала привычное пиво: то ли не хотела пить при мне, то ли и в
+правду не хотела пить.
+
+— To the humanity, cheers.
+
+— Cheers.
+
+
