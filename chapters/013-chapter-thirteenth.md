@@ -14,11 +14,11 @@ me for the time being.
 — Здравствуй, дядь Вань. Ну не души же меня так, — Sasha's voice sounded like
 she was prepared for this.
 
-I stood still for a while, mindlessly inspecting the pair and the background:
-badly lit cabin that looked like it used to be a freight train car. That was, on
-one hand, natural since it was in the end a railway facility. But on the other
-hand, it was a stark contrast to the shiny skyscrapers of railway monopoly i've
-seen the day before.
+I stood still for a while, mindlessly inspecting the pair on a peculiar
+background: badly lit cabin that looked like retired freight train car. That
+was, on one hand, natural since it was a railway facility anyway. But on the
+other hand, it was a stark contrast to the shiny skyscrapers of railway monopoly
+i've seen the day before.
 
 — Ладно, давайте я вас всё же познакомлю, — Sasha said addressing both of us, —
 Lets get acquainted.
@@ -89,7 +89,7 @@ same tenseness in the air.
 I could only wonder how often does she solve uneasy situation with weed. "Isn't
 it supposed to be solved with vodka in these parts?", a thought occurred to me,
 even though i couldn't take it seriously. Obviously, even correct statistical
-claims have nothing to with individuals.
+claims have nothing to do with individuals.
 
 — Ha-ha, i'm not sure it's such a good idea after this night's trip.
 
@@ -106,7 +106,8 @@ though.
 — Don't worry, i've got experience, — she smiled and i felt a barely noticeable
 chill run through my spine.
 
-— Well, i suppose i don't mind a joint then, — replied i reluctantly.
+— Well, i suppose i don't mind a joint then, — i replied reluctantly after a
+small pause.
 
 I was increasingly feeling that somehow i lost a huge deal of control of my life
 ever since i've entered that train that brought me here. Maybe that was the
@@ -131,7 +132,7 @@ to Ivan.
 
 Dark clouds hung over the city. At first, nobody noticed them. But they were
 still hanging the next day. And the next one. And finally everyone came to
-understanding that they became a part of city and will never go away.
+understanding that they became a part of the city and will never go away.
 
     ***
 
@@ -155,7 +156,7 @@ rid from this mysterious interrogator.
 was coming from literally nowhere, for all my ears were already used.
 
 — I see a room. Empty room, — i glanced into the darkness yet again, but was too
-afraid that it may look back and returned, — It's too dark.
+afraid that it may look back at me and returned, — It's too dark.
 
 Somebody exhaled as if expressing disappointment.
 
