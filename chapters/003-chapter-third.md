@@ -5,7 +5,7 @@ Finally i sat on the floor near the wall — in a first place that was relativel
 free and "secure": i always prefer to have solid cover behind my back. On my
 right there was a circle of three people staring at a small flat screen hanging
 on the wall. Two of them were also gripping some controllers and clicking on
-buttons. Apparently they were playing some old-school game. I stared at the
+buttons. ..Apparently they were playing some old-school game. I stared at the
 screen for a while, trying to understand what it was about, but then my
 attention was grabbed by the shoulder.
 
@@ -160,7 +160,7 @@ I threw away the remaining bandages and went running after Sasha, who was
 already approaching a small door with "Staff only" sign on it. Luckily for us,
 the door was open and there was nobody inside. We ran throw the maze of
 corridors that finally led us to a badly lit stairwell. I was amazed at how
-easily Sasha was choosing the right path as if she was familiar with the place.
+easily Sasha was choosing the right path as if familiar with the place.
 
 Our steps made hollow reverberated sounds as we ran down the stairs. For a while
 it was the only noise to be heard, save for our panting and heartbeat. But then
@@ -187,15 +187,15 @@ remained on the window.
     ***
 
 As we entered the bottom basement floor proper and the door behind shut, i found
-myself disoriented by the darkness. For a few seconds i realized i'm literally
-staring at a black screen, but then my vision adopted and i could discern
-silhouettes of surroundings. We were in a big — if not huge — room, mostly
-empty, except for some weird-looking structure in the middle. It was also
+myself disoriented by the darkness. For a few seconds i became aware i was
+literally staring at a black screen, but soon my vision adopted and i could
+discern silhouettes of the surroundings. We were in a big — if not huge — room,
+mostly empty, except for some weird-looking structure in the middle. It was also
 surprisingly silent: no sirens, no gunshots, no running steps.
 
 As if to preserve that silence, we didn't speak and walked slowly forward. It
 was hard to judge distance in the darkness, especially after that crazy run
-through the stairs, so it took us more than i expected to get to that structure.
+through the stairs, so it took us more than i expected to get to the structure.
 
 When we finally approached it, i realized it was a sculpture of a kind. But it
 was still too dark to see it clearly and after stumbling in buttons for a few
@@ -217,7 +217,7 @@ immediately did a double-roll to the right, expecting laser beams or something.
 But the stone creature merely followed me with its gaze and gave no other signs
 of being alive or otherwise active.
 
-— What's up with that piece of stone?! — i almost cried for i was pretty
+— What's up with that piece of stone?! — i almost cried, becoming pretty
 disturbed by its behaviour.
 
 — I'm trying to figure out that myself, — Sasha replied after a few daunting
@@ -225,12 +225,15 @@ seconds of silence. She spoke in an oddly calm voice, which only made me feel
 even more anxious.
 
 Meanwhile, as i was standing still, nothing changed. I looked around and saw
-Sasha a dozen meters form, looking at the sculpture intently. Other then her and
-the statue, the room was still empty, yet something deep inside was telling me
-that something was wrong. Not even the statue, something else.
+Sasha a dozen meters away, looking at the sculpture as intently as i was a few
+moments ago. Other than her and the statue, the room was still empty, yet
+something deep inside was telling me that something was wrong. Not even the
+statue, something else.
 
 I made a three-sixty degree turn around, trying to pierce the darkness before
 the creatures lurking there would disappear. But there were no creatures, there
-was nothing to be afraid of. The only thing that i was truly afraid now was that
-i found myself in this big dark room with a weird stone structure in its center
-and only one supposed ally and a semi-automatic in my hand.
+was nothing to be afraid of.
+
+Suddenly i became truly scared; being in a dark room centered around a creepy
+stone structure, with the only reliable ally being a semi-automatic that i
+gripped in my hands, was quite terrifying indeed.
