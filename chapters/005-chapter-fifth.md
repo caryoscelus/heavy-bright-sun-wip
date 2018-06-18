@@ -24,9 +24,9 @@ process what's happening.
 For a while i felt like i am floating in an abstract space, hopelessly trying to
 catch up with that faint pulsating light. Then suddenly the light stopped moving
 away and i fell straight into it and everything became blank white around me. I
-looked at my body and strangely enough i could now see it, or rather its vague
-undulating outlines. As i did, a stray thought occurred to me: "i shouldn't be
-watching myself so intently, or i'm going to morph away".
+looked at my body and strangely enough i was now able to see it, or rather its
+vague undulating outlines. As i did, a stray thought occurred to me: "i
+shouldn't be watching myself so intently, or i'm going to morph away".
 
 As i switched my gaze, i could see background going darker and rapidly losing
 dpi. For a moment i though i could see bare pixels, but then they stretched into
@@ -49,9 +49,9 @@ i walked into the bridge over a small river and, feeling like sun is going to
 burn me, stepped into the water and under the bridge.
 
 It was a bit darker and a few kilometers longer than it appeared from the
-outside, but i marched on bravely. A few shadows passed me as i walked silently
-walked further. I felt thirsty, but couldn't force myself to drink the dirty
-water i was walking in. When i looked into it, i saw my own reflected face; it
+outside, but i marched on bravely. A few shadows passed me as i silently walked
+further. I felt thirsty, but couldn't force myself to drink the dirty water i
+was walking through. When i looked into it, i saw my own reflected face; it
 looked thin and under-fed, but somehow its eyes shone with happiness.
 
 I felt like something was off about that reflection and touched my face. The
@@ -61,10 +61,10 @@ the revelation stroke me: my mind has wandered off in a different realm and i
 should better return swiftly.
 
 But even as i realized that, i still had no idea what exactly to do. I stood
-still for some time that i won't even dare to approximate, and then something
-bumped into my back. I ran forward, away from it, and soon found myself back in
-the fields. There were no tractors anymore, nor any crops, only tranquil green
-of raw grass, not limited by any artificial or natural boundaries.
+still for some time that i won't even dare to approximate; then something bumped
+into my back. I ran forward, away from it, and soon found myself back in the
+fields. There were no tractors anymore, nor any crops, only tranquil green of
+raw grass, not limited by any artificial or natural boundaries.
 
 "This can go on forever", i thought and in attempt to get rid of the scenery
 closed my eye. The green disappeared, but the darkness didn't come. My mind was
@@ -74,12 +74,14 @@ now filled with blue, both the color and the mood.
 
 "Go on, go on, go on", somebody preached in the darkness. And then repeated
 those tiny useless words a half dozen times more. And then again, and again, and
-again. It no longer sounded like an urge to continue, but it attained a certain
+again. It no longer sounded like an urge to continue, but attained a certain
 beat to it that was pushing forward, until it succeeded to surface.
 
     ***
 
-Then i started to hear distant voices. Then i started to feel distant warmth.
+Then i started to hear distant voices.
+
+Then i started to feel distant warmth.
 
 And finally, the room with a small pulsating screen and a whole crowd of people
 came crashing into me like a spring thunder. I felt my hands stuck on a sweaty
@@ -110,10 +112,10 @@ I reluctantly moved away, still trying to process what he was saying. Twenty
 five minutes?! How long of that did i spend sanely and how long was i wandering
 through the mazes of my mind?
 
-— Not feeling good? — suddenly whispered Sasha, — Why don't we go breath some
-fresh air.
+— Not feeling good? — suddenly Sasha started whispering again, — Why don't we go
+breath some fresh air.
 
-She said that and dragged me out of the room. Having no energy or reason to
+Having said that she dragged me out of the room. Having no energy or reason to
 refuse, i followed.
 
     ***
@@ -134,7 +136,7 @@ In the dark cold atmosphere of the northern night i quickly came to senses.
 Sasha said; there was a hint of reverie in her voice.
 
 "What was it?!" — i wanted to say, for now i remembered that the joint and the
-game were both forced (?) onto me by her.
+game were both brought upon me by her.
 
 — Did you expect any less of me? — i said instead, — That's what i call lack of
 faith!
