@@ -15,7 +15,7 @@ starting the car.
 text-only stories, i've been participating in a few indie game circles, — Sasha
 finally fired up the engine and inspected me, — All set? Then forward we go!
 
-Our old sedan started unexpectedly sharply, forcing me into the back of my seat.
+Our old sedan started unexpectedly sharp, forcing me into the back of my seat.
 
 — So, as i was saying, i was involved with making a few small scale games. One
 of them we were making with Orpheus. Actually, it was he who introduced me to
@@ -66,18 +66,18 @@ Still, those clouds weren't too thick and the change from dark grey to yellowish
 grey to pink to bright yellow was beautiful. And yet another thing was the
 ghost-looking town awakening. Old multi-storey apartment buildings first looked
 like simple black shadows, with only few lit windows. Then they started to turn
-grey, light in windows was flipping on and off. And as they turned grey, their
-true state started to show.
+grey, light in windows flipping on and off. And as they turned grey, their true
+state started to show.
 
 I wouldn't have been surprised if i would be told that town had been hit by war.
 Buildings were visibly disintegrating, some apparently abandoned, with empty
 windowless frames; some still inhabited, despite half of the roof being
-collapsed.
+collapsed. But as far as i knew, there had been no war in these parts for quite
+some time.
 
 Then, the cars. Of those few we could see, all were either old or covered in a
-brown dirt, or both. Some were just empty car skeletons. There was still little
-snow on them, but i imagined most of those cars will turn into car-shaped snow
-mountains later in the winter.
+brown dirt, or both. Some were just empty car skeletons. I imagined most of them
+will turn into car-shaped snow mountains later in the winter.
 
 Then, there were trees. Dead-looking, weirdly shaped trees, which Sasha
 described as "our mutant trees".
@@ -99,7 +99,7 @@ Slowly we started descending to the platform. We had no need to haste for the
 train wasn't in a hurry either.
 
 Only when it arrived did i realize that Sasha was still with me despite my
-somewhat secret meeting with Blue. I looked at her. She stared back.
+supposedly secret meeting with Blue. I looked at her. She stared back.
 
 — There's no need to worry about such details, — she said, as if answering to my
 unspoken thoughts.
@@ -113,8 +113,8 @@ feeling its lungs. Soon there will be no more.
 
 Only one person left the train on the platform and for a moment i thought that
 maybe the whole train was riding only to get him here. Of course, it was Blue;
-of course, he was still wearing black leather. And apparently he wasn't
-surprised to see me in a company.
+of course, he was still wearing black leather. And apparently he was neither
+surprised nor alarmed to see me in a company.
 
 While he was walking towards us, the train left the station.
 
