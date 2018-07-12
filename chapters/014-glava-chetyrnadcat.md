@@ -12,8 +12,8 @@
 театрально одетый мужчина.
 
 И внешность, и акцент сразу выдали в нём гайджина. Судя по тому, как он называет
-это местечко, я решил, что он, наверное, германец, хотя он конечно мог лишь
-играть.
+это местечко я решил, что он наверное германец, хотя конечно это могла быть
+всего лишь игра.
 
 — Гутэн абенд, — поддавшись какому-то смутному искушению всё же сделать это, я
 произнёс эти слова.
@@ -29,6 +29,8 @@ all the linguistic overdose.
 
 — Yeah, production starts next monday. We're all doomed.
 
+....
+
 Я слушал их разговор молча, медленно потягивая странный коктейль. Даже немного
 придя в себя после бесконечного дня и непривычно оживлённой ночи, я всё же
 предпочитал ограничиться наблюдением, насколько это было возможно. Или, быть
@@ -43,7 +45,7 @@ discuss it first handed.
 — Tis true.
 
 — It's one of those things that can be used to uselessly explain anything. The
-night i grasped it, i was so fascinated that couldn't sleep.
+night i grasped it, i was so fascinated that i couldn't sleep.
 
 "Kinda romantic", подумал я, но конечно не произнёс этого вслух.
 
@@ -54,7 +56,7 @@ it broadly.
 
 — Balance is certainly needed. Why don't we play pong for a change?
 
-— My expectation certainly weren't betrayed.
+— My expectations certainly weren't betrayed.
 
 Что же до моих ожиданий, то после всего произошедшего их проще всего было бы
 выразить фразой "expected the unexpected". Чтобы не нарушать этого настроения, я
@@ -109,7 +111,7 @@ care that much about age. At least less so than about Pong.
 квадратный мячик застыл посередине стола и не подавал признаков жизни.
 
 — Aren't you enthusiastic, my friend, — произнесла Кирихара-сан после небольшой
-паузы безо всякого вопроса в голосе.
+паузы, безо всякого вопроса в голосе.
 
 — I'd be happy to not be so, but one's gotta survive to be heard. Anthropic
 principle, you know.
@@ -118,7 +120,7 @@ principle, you know.
 
 — Shall we start, Лёоща-кун?
 
-И, не дожидаясь ответа, нажал на хорошо замаскированную кнопку на столе.
+И, не дожидаясь ответа, нажал хорошо замаскированную кнопку на столе.
 
 Как обычно и бывает в таких ситуациях, раздалась мелодия на восьми битах и
 огоньки по периметру стола замигали. Роль закадрого голоса исполнил сам
