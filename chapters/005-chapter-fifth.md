@@ -40,13 +40,13 @@ walking on the lonely road that stretched from one horizon to another.
 winter comes too early and eats away everything."
 
 "Ah, is that so?", i pronounced inside my head, feeling like i've come close to
-understanding something truly important. But then the road suddenly come to a
+understanding something truly important. But then the road suddenly came to a
 crossing and i had to choose where to go and all other thoughts withered away.
 
 I turned right for no apparent reason, except for a feeble gut feeling that told
-me there was cool water somewhere along those lines. And indeed there was; soon
+me there was cool water somewhere along those lines. And indeed there was: soon
 i walked into the bridge over a small river and, feeling like sun is going to
-burn me, stepped into the water and under the bridge.
+burn me, stepped into the water and then into water pipe under the bridge.
 
 It was a bit darker and a few kilometers longer than it appeared from the
 outside, but i marched on bravely. A few shadows passed me as i silently walked
@@ -79,9 +79,9 @@ beat to it that was pushing forward, until it succeeded to surface.
 
     ***
 
-Then i started to hear distant voices.
+Then, i started to hear distant voices.
 
-Then i started to feel distant warmth.
+Then, i started to feel distant warmth.
 
 And finally, the room with a small pulsating screen and a whole crowd of people
 came crashing into me like a spring thunder. I felt my hands stuck on a sweaty
@@ -96,13 +96,13 @@ and finally could make out blinking words written on it: "Play Again?"
 
 I almost screamed "no" in response, but then it occurred to me that acting that
 way might be not appropriate to situation. I looked around and saw that not much
-changed in the real world since i entered this "fucking stuff".
+changed in "the real world" since i entered this "fucking stuff".
 
-The only people who apparently noticed something was wrong with me were Sasha
-and Orpheus. The rest of the party crowd were still happily chatting like
-nothing happened. And then i thought that maybe nothing happened indeed: in the
-end, it was just my imagination going wild under the drugs and it was quite
-possible that i didn't act especially alerting during the trip.
+The only people who apparently noticed something was off about me were Sasha and
+Orpheus. The rest of the party crowd were still happily chatting like nothing
+happened. And then i thought that maybe nothing happened indeed: in the end, it
+was just my imagination going wild under the drugs and it was quite possible
+that i didn't act especially alerting during the trip.
 
 — Congrats, girls! You survived for a whooping twenty five minutes. And now, if
 i may.. — Orpheus made a gesture, requesting us to move away, — we have new
@@ -143,7 +143,7 @@ faith!
 
 — Ha-ha, don't be so offended! How was i supposed to know that you're so good at
 fighting, games and... — she trailed off, as if provoking me to guess what was
-it that she left unsaid.
+it that she left unspoken.
 
 — Well, you shouldn't have asked somebody to be your partner if you don't
 believe in them, — i replied, trying to sound mildly offended.
