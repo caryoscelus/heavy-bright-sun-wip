@@ -17,7 +17,7 @@ darkness.
 Then the winter wind blew hard into my face, messing up my hair and blocking the
 view. Having broken our gaze, i turned away, trying to think about situation at
 hand. But i was much too shocked to actually process everything that happened
-and in the end all my thoughts concentrated on Sasha, kissing and my feelings.
+and in the end all my thoughts concentrated on Sasha, our kiss and my feelings.
 
 — Sorry, — she whispered after a while, her voice giving away doubt, — you
 didn't like it?
@@ -60,13 +60,12 @@ of his words.
 — So i am indeed. Meet me at the station at the dawn, — he said that and hung
 up. For a few seconds i listened for the short beeps and then returned phone to
 its owner. He was visibly displeased by the fact that he had to walk through the
-house just for me to say one word, but then walked off silently.
+whole house just for me to say one word, but then walked off silently.
 
 I stood still, looking at the night scenery for a while. Decaying wooden houses,
 empty streets engulfed in darkness — darkness so thick it could not be unraveled
 by a few dim and flickering street lights. Lights, reflected in a few dirty
-puddles and broken glass. That was about all civilization had to offer in these
-parts.
+puddles and broken glass. That was about all civilization had to offer.
 
 Then, there was a black massive of forest against cloudy sky. It stayed still
 there, perhaps for centuries or even millennia. Dying little town meant nothing
@@ -88,9 +87,9 @@ getting cold, i added:
 
 — Lets discuss that inside though, shall we?
 
-After being so long out in the cold, it felt pleasantly warm, but also somewhat
-stuffy inside. We quickly walked through the corridor, which i haven't really
-noticed before and then up the steep wooden stairs.
+After being so long out in the cold, house felt pleasantly warm, but also
+somewhat stuffy inside. We quickly walked through the corridor, which i haven't
+really noticed before and then up the steep wooden stairs.
 
 — So you're leaving? — only after we walked through the main room, still full of
 partying people, into the small room where i woke up, did Sasha ask.
@@ -128,7 +127,7 @@ it won't help me in this situation.
 don't mind. Why did you guys have to steal that car yesterday? And are you going
 to do it again?
 
-— Hey, that's two questions! — Sasha replied, meanwhile gesturing me to suggest
+— Hey, that's two questions! — Sasha replied, meanwhile gesturing me, suggesting
 we should leave, — But anyway, you shouldn't be that worried about it. It would
 take much longer for anybody to find out than we're going to stay here.
 
@@ -176,7 +175,7 @@ I remained silent for i had little idea of what would be considered polite in
 this situation.
 
 — No worry. Just wait a second, — with this Orpheus moved through another door,
-which happened to lead to a tiny unlit storeroom. Apparently he didn't need
+which happened to lead into a tiny unlit storeroom. Apparently he didn't need
 light to find whatever he wanted to find, though, for he emerged out of it quite
 quickly.
 
