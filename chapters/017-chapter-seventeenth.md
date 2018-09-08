@@ -30,7 +30,7 @@ The sound of the ???? chopping the air.
 
 My first flight. Not first flight ever, but rather first *my* flight. The time
 when i rule the air around. When a few worthless precious lives depend on me.
-When the decision whether this ??? ton machinery will continue functioning or
+When the decision whether this two ton machinery will continue functioning or
 not is mine and mine only.
 
     ***
@@ -70,12 +70,13 @@ year. As could be expected, i didn't precisely define either "stop fearing" or
 "constantly flying". I never ended up evaluating whether i passed the test. But
 shortly after i was admitted into helicopter flying school.
 
-    ****
+    ***
 
 Somehow, i ended up daydreaming again. The cabin is still as red and empty as it
-was. I tuned the noise back in. Of course, it sounded alien. But otherwise it
-sounded as if everything was normal. I turned to the windows and opened luxury
-velvet shades. The world outside turned out to be unnaturally white.
+was. I tuned the engine noise back in. Of course, it sounded alien. But
+otherwise it sounded as if everything was normal. I turned to the windows and
+opened luxury velvet shades. The world outside turned out to be unnaturally
+white.
 
 — How nice! We can pretend we're left all alone in the world, can't we, Izzy? Or
 would you prefer to entertain the idea that we were alone always?
@@ -156,8 +157,8 @@ thoughts.
 
 — Well, i didn't expect a man like you to visit me for no reason at all.
 
-— Still thinking i'm that kind of cold blooded killer that are so popular in
-popular culture?
+— Still thinking i'm that kind of cold blooded killer who are so popular in pop
+culture?
 
 — Feel free to change my opinion.
 
