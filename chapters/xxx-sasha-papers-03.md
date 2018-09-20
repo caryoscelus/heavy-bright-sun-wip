@@ -5,9 +5,9 @@ So here i am again, riding the train, but sorry, i'm not going to write much
 this time. Why? Cause i'm not alone now. I'm actually in a noisy company and i
 have to write this from my phone, pretending i'm sending an important message.
 
-Writing will have to wait until i have some more time to myself, even though i'd
-really like to share my impression of my companions: it sure seems like my
-long-awaited adventure might have finally started.
+Proper writing will have to wait until i have some more time to myself, even
+though i'd really like to share my impression of my companions: it sure seems
+like my long-awaited adventure might have finally started.
 
 ...
 
@@ -32,7 +32,8 @@ On one hand, i could just mention that the watchman is my old acquaintance and
 waive the rest of the questions off.
 
 On the other, that's not my goal. I'm supposed to be writing a memoir or
-something. So lets go into the past details.
+something. Skipping possibilities to write a chunk of text wouldn't get me
+anywhere. So lets go into the past details.
 
 ...
 
@@ -63,7 +64,7 @@ story. Her name is Isabella, or Bella for short.
 
 At first she looked conspicuously mundane. Next moment i thought she did it on
 purpose. Then she turned around and no longer looked that mundane: her other eye
-was covered with fringe of hair; hiding behind it was stylish eye bandage.
+was covered with fringe of hair; hiding behind it was a stylish eye bandage.
 
 She sat down in front of me and smiled with a transient smile. When she looked
 me in the eyes, i was already captivated.
