@@ -7,8 +7,8 @@ adventures still haven't really started, i suppose.
 
 If you're still wondering about my whereabouts, now i'm at a
 not-very-fashionable hotel in this boring megapolis (wait wut? there's no such
-word in english? do i have to write megalopolis to get rid of that annoying
-spellcheck warning? aww, the world is unfair).
+word in english dictionary? do i have to write "megalopolis" to get rid of that
+annoying spellcheck warning? aww, the world is unfair).
 
 ...
 
@@ -34,7 +34,7 @@ And how am i supposed to keep it fun without that adventure? Sure thing, i can
 tap on my connections and meet some criminal authorities or something, but that
 would be cheating.
 
-"Sasha, when did you decide on such a rigid rules?", an old-teacher-like voice
+"Sasha, when did you decide on such rigid rules?", an old-teacher-like voice
 asks.
 
 "They aren't rigid, i just came up with this on the spot", i reply.
@@ -69,10 +69,10 @@ I've still got a few more days here to kill, though. So i should probably
 continue my rambling while i still can.
 
 Ah, but it is not so easy to write about myself in this boring hotel room, as it
-was in a suburb train. Maybe i should go out and find a better place to write?
+was in that suburb train. Maybe i should go out and find a better place to write?
 But then it's pretty cold outside...
 
-Aww, crap, doesn't matter. I'm too bored in these four wall.
+Aww, crap, doesn't matter. I'm too bored in these four walls.
 
 ...
 
@@ -84,8 +84,8 @@ laptop.
 The cafe is almost empty, so i got my stuff pretty soon. And hey, it's
 surprisingly tasty, too!
 
-Hmm, it's a pity i'm not doing an illustrated book. Otherwise posting food photo
-would be very appropriate.
+Hmm, it's a pity i'm not doing an illustrated book. Otherwise posting food
+photos would be a very appropriate way to fill some space.
 
 "But, it's such a bad taste, Sasha!", the teacher returns.
 
@@ -105,7 +105,7 @@ official).
 He certainly has a certain beauty (no, i refuse to use that stupid "handsome"
 word!), but there's something bland in his eyes. Good for a glamour journal, but
 not really all that interesting. Or at least, so he looks. It's not like i
-actually talked with him or something.
+actually talked to him or something.
 
 Then, there's a short, somewhat clumsy waitress who walked past me a few times.
 She's attending that business-bandit-looking old man. I wouldn't be surprised if
@@ -136,10 +136,10 @@ are at all interested in my so called adventures.
 Let me see. On a first glance, it's a quintessence of a modern cafe trying hard
 to look older than it is. I suppose interior designer described their work as
 "Victorian", but in reality everything here shouts to you that it came fresh
-from a fully-automatic plant that could be only be fantasized about in Victorian
+from a fully-automatic plant that could only be fantasized about in Victorian
 era.
 
-Aww, i'm bad at describing surroundings, ain't i?
+And that's about it. Aww, i'm bad at describing surroundings, ain't i?
 
 ...
 
