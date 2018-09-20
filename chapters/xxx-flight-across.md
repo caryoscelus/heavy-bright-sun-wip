@@ -1,5 +1,5 @@
-Chapter Seventeenth
--------------------
+
+------------------
 
 Sitting in a comfortable seat of an air charter flying across continent, i tried
 to forget about the cold harsh reality of outside world that laid both in the
