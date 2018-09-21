@@ -17,14 +17,14 @@ So then, lets start. As i write this, i'm sitting in an interplanetary ship
 headed for—— aww, wait a second, i said i won't be writing fanfic this time. So
 lets get back to reality: i'm sitting in a distressingly old suburban train.
 It's past ten in the evening and i'm starting to feel sleepy, but it's still
-more than hour before my destination. Well, i suppose i can blame myself for
+more than an hour before my destination. Well, i suppose i can blame myself for
 choosing such transportation.
 
-Anyway, i've tried to look through the window, but it's too dark to be
+Anyway, i tried to look through the window, but it's too dark to be
 interesting. Then i looked at the passengers, but i just wasn't in the mood for
-that. So then i picked up my laptop and ended up writing this stuff. I guess
-it's just my old habit: write when i have nothing better to do (have i told you
-i ended up being professional journalist that way? Well, now i have).
+that. And that's how i picked up my laptop and ended up writing this stuff. I
+guess it's just my old habit: write when i have nothing better to do (have i
+told you i ended up being professional journalist that way? Well, now i have).
 
 Interestingly enough i hadn't been writing about myself, at least not in recent
 years. Even if it was quite often that i gave my characters or plot one or two
@@ -50,7 +50,7 @@ floor, the payment came. I've become so overjoyed that i just couldn't stop
 myself from celebrating it with a little joint.
 
 So while i was high, the idea came to me that at this point i can stop taking
-any further jobs and head for an adventure instead. And so i picked a random
+any further jobs and head for an *adventure* instead. And so i picked a random
 direction, packed up my laptop and a few other useful things and rode off on a
 first train. Incidentally, it's a bit annoying that english has no single word
 for what we call "электричка". That reminds me, why am i even writing in
@@ -80,7 +80,7 @@ i'm here.
 I guess that'll pass for the explanation of current affairs. Meanwhile, the
 train is getting near the final station, yay! Now i need to wrap this up. Should
 i call the thing i wrote today a first chapter? Bah, when i write my fanfics my
-chapters are like at least five time longer.
+chapters are like at least five times longer.
 
 ...
 
@@ -88,7 +88,7 @@ Really though, i don't know how to wrap it up. Should i write about my grand
 future plans? Should i just leave my sign here?
 
 Nah, writing plans would take too much time and if someone like you happens to
-read this, they should already know who am i. Or no, who cares?
+read this, they should already know who am i. Or no; who cares?
 
 I can go for an epic ending: "and now from myself of today, to myself of the
 days to come, i shall say: blah-blah-blah", but as you might have expected i'm
