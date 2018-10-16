@@ -47,9 +47,9 @@ should just drop the whole politics theme and join the glorious lines of tech
 adventurers?
 
 There seemed to be no end to this dark road filled with deathly turns and
-bumps. I started getting tired of rotating mechanical wheel (??) and a bit
-worried that we might not live through this night. On a relatively easy part of
-the road, i finally brought myself to stop Sasha's rambling:
+bumps. I started getting tired of steering mechanical wheel and a bit worried
+that we might not live through this night. On a relatively easy part of the
+road, i finally brought myself to stop Sasha's rambling:
 
 — So, how much more is left till the city? — i wanted to also complain about our
 car lacking navigator, but then remembered it wasn't Sasha's one anyway.
@@ -87,18 +87,43 @@ instincts still couldn't be matched by some third-grade dilettantes of violent
 racing. But no matter how good you are, in this world there are physical
 limitations unovercomeable by mere mortals.
 
-What Sasha didn't account for was the risk of getting outright ???? taraned ????
-by simply more powerful car with nitrogen boosters. Even if could secure us a
-win in an honest race, there was nothing to do against this brute force. The
-only chance to get away we had was to make Predators crash before that gasoline
+What Sasha didn't account for was the risk of getting outright rammed into by
+simply more powerful car with nitrogen boosters. Even if i could secure us a win
+in an honest race, there was nothing to do against this brute force. The only
+chance to get away we had was to make Predators crash before that gasoline
 station, when they were still playing competitive.
 
 But in the end they only crashed into our car, sending already speeding sedan
-forward and then, attacking it from the side, into the ??????.
+forward and then, attacking it from the side, into the side of the road.
 
 I don't know whether this was pure luck or remains of my driving skills which
 saved us in the end. Our car scratched over a birch tree, losing a slice of its
 head along with the left door, and slowing down just enough to not kill us on
 the next impact into an old oak.
 
-Our predators pulled the brakes and rammed into another tree
+Our predators pulled the brakes and rammed into another tree. Even if they could
+just go forward, slow down and return to catch us, i guess they weren't
+cool-headed enough to do that.
+
+But i've only inferred that some time later. Right after the crash, i was
+sitting shocked, my head pushed into an emergency pillow and my head filled with
+thoughts of terror and relief at the same time.
+
+Of all four of us, Sasha was the first to move. After looking at my sorrow, but
+alive state, she kicked the right door open and crawled outside with a weak
+smile on her face.
+
+— Looks like we're gonna need to borrow another car, — she said after looking
+critically at the wreck that we've just been riding on.
+
+    ***
+
+    ***
+
+To say that i wasn't used to extreme situations would of course be a lie, but i
+still remember the acute feeling of extreme annoyance at the occasion, only
+slightly diluted by fear. The reason for this was likely my total lack of
+anticipation something absurd like this can happen.
+
+Just a half an hour ago before the crash, we were comfortably riding towards our
+newfound destination.
