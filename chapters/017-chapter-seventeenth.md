@@ -34,7 +34,8 @@ to be proud of. But we had no time for such feelings. Our competitors, only a
 few moments ago lost beyond a road turn, were quickly catching up.
 
 — Funnily enough, those rats who did it are already dead. They all fought for
-power, but in the end even the rat king fell by the hand of his bodyguards...
+power, but when the shit had finally hit the fan, even the rat king fell by the
+hand of his bodyguard...
 
 I was getting a bit annoyed by Sasha's nonchalant attitude towards the dangers i
 was fighting. I wondered whether she is used to such kind of situations or
@@ -58,8 +59,8 @@ car lacking navigator, but then remembered it wasn't Sasha's one anyway.
 and then it's a straight line of five kilometers. But the Predators will not go
 all the way; you need to hang on just a bit after that station.
 
-— If you knew that much, why did we even go onto this dangerous path? — i could
-no longer hide my irritation.
+— If you knew that much, why even go onto this fucked up road? — i could no
+longer hide my irritation.
 
 — Well, it's not like there were viable alternatives. I'm not a big fan of
 roundabout ways. Besides, i trusted you could put this bad parody of racers to
@@ -93,21 +94,25 @@ in an honest race, there was nothing to do against this brute force. The only
 chance to get away we had was to make Predators crash before that gasoline
 station, when they were still playing competitive.
 
-But in the end they only crashed into our car, sending already speeding sedan
-forward and then, attacking it from the side, into the side of the road.
+But we had missed that chance. In the end they only crashed into our car, sending
+already speeding sedan forward and then, attacking it from the side, into the
+side of the road.
 
 I don't know whether this was pure luck or remains of my driving skills which
 saved us in the end. Our car scratched over a birch tree, losing a slice of its
 head along with the left door, and slowing down just enough to not kill us on
 the next impact into an old oak.
 
-Our predators pulled the brakes and rammed into another tree. Even if they could
-just go forward, slow down and return to catch us, i guess they weren't
-cool-headed enough to do that.
+Our predators pulled the brakes and smashed into another tree. Even if they
+could just go forward, slow down and return to catch us, they weren't
+cool-headed enough to do that. Like classical adrenaline junkies, they were
+willing to put lives on the line, both others' and their own. And as if that
+wasn't enough, their driver also indulged in substance abuse most of the time
+outside of vehicle.
 
-But i've only inferred that some time later. Right after the crash, i was
-sitting shocked, my head pushed into an emergency pillow and my head filled with
-thoughts of terror and relief at the same time.
+But i've only inferred such details some time later. Right after the crash, i
+was sitting shocked, my head pushed into an emergency pillow and my head filled
+with thoughts of terror and relief at the same time.
 
 Of all four of us, Sasha was the first to move. After looking at my sorrow, but
 alive state, she kicked the right door open and crawled outside with a weak
@@ -122,8 +127,18 @@ critically at the wreck that we've just been riding on.
 
 To say that i wasn't used to extreme situations would of course be a lie, but i
 still remember the acute feeling of extreme annoyance at the occasion, only
-slightly diluted by fear. The reason for this was likely my total lack of
-anticipation something absurd like this can happen.
+slightly diluted by fear. When immediate pressure of having to steer vehicle was
+over, my anger finally surfaced.
 
-Just a half an hour ago before the crash, we were comfortably riding towards our
-newfound destination.
+"What the hell went wrong?" "How did we end in this mess?" ...
+
+Of course i knew the formal answers to these questions. I could go through the
+chain of events this night and find a causality for everything. But that wasn't
+satisfying at all. Faced with consequences of my past actions, i could see so
+many opportunities to fix it up; the fact that i couldn't foresee them was not
+an excuse, but rather a reason to blame myself.
+
+I didn't notice when i started to grind my teeth in a helpless rage. When i
+noticed, i realized that i had already spent too much time in a less than
+comfortable position in a crashed vehicle. Furthermore, situation was still far
+from being resolved.
