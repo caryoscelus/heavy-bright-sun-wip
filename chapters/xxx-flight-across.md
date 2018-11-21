@@ -162,6 +162,46 @@ culture?
 
 — Feel free to change my opinion.
 
-— Thanks for permission. Anyway, i wanted .
+— Thanks for permission. Anyway, it's not even so much of a single question. But
+i guess i have to start somewhere. Do you like books?
 
+Finishing off previous topic, he finally brought up another strange subject. In
+retrospective, it could have even been an expected one, but at the time i barely
+knew anything about him.
 
+— Books, huh? Let me see. I certainly know a lot of people who love them much
+more than i do. But then there are as many people who read a lot less than
+me. And from another perspective.. well, i do like certain books, but what
+should it even mean to like books at large?
+
+— For someone who uses them for cryptography, that's a bit unexpected
+ambiguity. Or, on the contrary, something i had to anticipate? But that aside,
+should i perhaps answer your question?
+
+I turned my head questionably: for a moment i didn't understand that he's going
+to answer my semi-rhetoric question.
+
+— Most of us have choice, — or should i even say "freedom"? — how to spend our
+time. And while some may still prefer to liberate themselves from this burden
+and postpone (?) decisions onto others, the choice once made still shapes our
+personality and consciousness. We can choose whether we'd like to read books,
+watch movies, play games, hang out with friends, kill people for money or talk
+about some nonsense on ???? altitude. If you tend to choose books over other
+activities you find pleasant, we can say you like them.
+
+— That's a bit too ???, don't you think? But have you thought about
+informativeness of choice? Alice might choose books every time simple because
+her friends always have a nice one to recommend, but they don't recommend any
+movies. Her friend Bob has spent a lot of time consuming various forms of media
+and then concluded he gets max fun from reading. And, for the sake of it, Cecil
+has literally met god who using infinite simulations of possible lives has given
+her sorted list of things she should experience for maximum subjective
+enjoyment, and it turned out a lot of books were on top of it. But in the end
+each of them might say "i like books".
+
+— I could probably think of an objection towards your god example, but setting
+that aside, hey, turns out you do know what it means to "like books".
+
+— No. I know what some people may mean by it, but i also know that others might
+disagree with such usage. And i have no idea what usage should i adapt for
+myself.
