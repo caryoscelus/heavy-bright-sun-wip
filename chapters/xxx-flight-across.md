@@ -106,7 +106,7 @@ There is a departure station, but there is no destination.
     ***
 
 Finally, my train of thought is interrupted by another human being entering the
-scarlet cabin. Human eyes, not any less human ears on the human scull, properly
+scarlet cabin. Human eyes, not any less human ears on the human scull properly
 covered by skin — he looked funny. I was staring at him perhaps too
 scrutinizingly: he almost reached his hand to wipe his face of something that
 wasn't there. Then he smiled at me with his pretendingly tired smile.
@@ -183,13 +183,13 @@ to answer my semi-rhetoric question.
 
 — Most of us have choice, — or should i even say "freedom"? — how to spend our
 time. And while some may still prefer to liberate themselves from this burden
-and postpone (?) decisions onto others, the choice once made still shapes our
+and shift decision-making onto others, the choice once made still shapes our
 personality and consciousness. We can choose whether we'd like to read books,
 watch movies, play games, hang out with friends, kill people for money or talk
-about some nonsense on ???? altitude. If you tend to choose books over other
-activities you find pleasant, we can say you like them.
+about some nonsense on ten kilometer altitude. If you tend to choose books over
+other activities you find pleasant, we can say you like them.
 
-— That's a bit too ???, don't you think? But have you thought about
+— That's a bit too generic, don't you think? Have you thought about
 informativeness of choice? Alice might choose books every time simple because
 her friends always have a nice one to recommend, but they don't recommend any
 movies. Her friend Bob has spent a lot of time consuming various forms of media
@@ -205,3 +205,11 @@ that aside, hey, turns out you do know what it means to "like books".
 — No. I know what some people may mean by it, but i also know that others might
 disagree with such usage. And i have no idea what usage should i adapt for
 myself.
+
+— If we start to question our intuition too much, would we even be able to talk?
+You're probably doing enough considerations already.
+
+— What do you even know about me?
+
+— But i guess we didn't have to go on that tangle, — he ignored my line and
+returned to the "books" topic, — More or less, i understand your attitude.
