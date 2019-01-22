@@ -9,11 +9,11 @@ dark for anybody to see it.
     ***
 
 Does racing old cars on winter road in the middle of night counts as extreme
-sport or as extravagant suicide method? Perhaps, a bit of both. It is also not
+sports or as extravagant suicide method? Perhaps, a bit of both. It is also not
 very safe for late bystanders and stray cars on steep turns. A small memorial
 with cross and undead flowers — a very material, if not living, proof of these
 dangers, — was highlighted by headlights of our speeding sedan for a few moments
-before disappearing into eternal darkness.
+before disappearing back into eternal darkness.
 
 — Here lies the last mayor of that wrecked town, — Sasha commented in a
 surprisingly calm voice, — Or whatever left of his remains, anyway.
@@ -21,7 +21,7 @@ surprisingly calm voice, — Or whatever left of his remains, anyway.
 Barely managing to handle ancient controls of quickly moving vehicle, i barely
 registered meaning of her words and had no time to reply. Few seconds later, our
 car jumped up on a road bump, and the remnants of the lingering question "why"
-in my head has disappeared altogether.
+in my head had disappeared altogether.
 
 But Sasha continued nevertheless.
 
@@ -30,17 +30,17 @@ but.. they killed off about ninety-nine percents of his mind two hours before
 that happened.
 
 Sharp screeching of tires forced her to pause. I did a maneuver precise enough
-to be proud of. But we had no time for such feelings. Our competitors, only a
-few moments ago lost beyond a road turn, were quickly catching up.
+to be proud of, but we had no time for such feelings. Our competitors, only a few
+moments ago lost beyond a road turn, were quickly catching up.
 
 — Funnily enough, those rats who did it are already dead. They all fought for
 power, but when the shit had finally hit the fan, even the rat king fell by the
 hand of his bodyguard...
 
-I was getting a bit annoyed by Sasha's nonchalant attitude towards the dangers i
-was fighting. I wondered whether she is used to such kind of situations or
-simply have no fears. But yet again, i was much to busy driving to bring myself
-to reply anything.
+I was getting a bit annoyed by Sasha's nonchalant attitude towards the more
+immediate dangers i was fighting. I wondered whether she is used to such kind of
+situations or simply have no fears. But yet again, i was much to busy driving to
+bring myself to reply anything.
 
 — For all the blood they spilled and bled though, it was an interesting time to
 be a journalist. Current dynamic equilibrium isn't as fun to watch. Maybe i
@@ -70,7 +70,7 @@ shame.
 
 — I took all the risks into account, that's all.
 
-Another sharp turn shook our car, forcing us to shut up for a while.
+Another sharp turn shook our car, forcing both of us to shut up for a while.
 
     ***
 
@@ -94,17 +94,17 @@ in an honest race, there was nothing to do against this brute force. The only
 chance to get away we had was to make Predators crash before that gasoline
 station, when they were still playing competitive.
 
-But we had missed that chance. In the end they only crashed into our car, sending
-already speeding sedan forward and then, attacking it from the side, into the
-side of the road.
+But we had missed that chance. When the score was clear enough to understand
+their loss, they simply crashed into our car, sending already speeding sedan
+forward and then, attacking it from left, into the side of the road.
 
 I don't know whether this was pure luck or remains of my driving skills which
 saved us in the end. Our car scratched over a birch tree, losing a slice of its
 head along with the left door, and slowing down just enough to not kill us on
 the next impact into an old oak.
 
-Our predators pulled the brakes and smashed into another tree. Even if they
-could just go forward, slow down and return to catch us, they weren't
+Meanwhile, predators pulled the brakes and smashed into another tree. Even if
+they could just go forward, slow down and return to catch us, they weren't
 cool-headed enough to do that. Like classical adrenaline junkies, they were
 willing to put lives on the line, both others' and their own. And as if that
 wasn't enough, their driver also indulged in substance abuse most of the time
@@ -123,6 +123,8 @@ critically at the wreck that we've just been riding on.
 
     ***
 
+
+
     ***
 
 To say that i wasn't used to extreme situations would of course be a lie, but i
@@ -130,15 +132,31 @@ still remember the acute feeling of extreme annoyance at the occasion, only
 slightly diluted by fear. When immediate pressure of having to steer vehicle was
 over, my anger finally surfaced.
 
-"What the hell went wrong?" "How did we end in this mess?" ...
+"What the hell went wrong?" "How did we end in this mess?" Typical questions,
+which usually aren't even thought to this precision.
 
-Of course i knew the formal answers to these questions. I could go through the
-chain of events this night and find a causality for everything. But that wasn't
-satisfying at all. Faced with consequences of my past actions, i could see so
-many opportunities to fix it up; the fact that i couldn't foresee them was not
-an excuse, but rather a reason to blame myself.
+And of course i knew the formal answers to these questions. I could go through
+the chain of events the night and find a causality for everything. But that
+wasn't satisfying at all. Faced with consequences of my past actions, i could
+see so many opportunities to fix it up; the fact that i couldn't foresee them
+was not an excuse, but rather a reason to blame myself.
 
 I didn't notice when i started to grind my teeth in a helpless rage. When i
 noticed, i realized that i had already spent too much time in a less than
 comfortable position in a crashed vehicle. Furthermore, situation was still far
-from being resolved.
+from being resolved. Getting rid of annoying safety pillow, i stumbled out of
+the car and unsteadily walked forward.
+
+It was dark. After a long night journey through the forest, i only now truly
+entered the real night, not lighten up by head- or emergency lights. After a few
+steps, the dim lights from the car disappeared and the only other source of
+light was dark cloudy sky. For a few moments i became engulfed in this darkness
+and thoughts on the present situation had completely drifted away.
+
+I was alone in the wild night forest.
+
+From here i could go anywhere. Nobody would find me. I could just send the whole
+stupid world to hell and leave all the troubles to whoever didn't dare. But then
+i couldn't. Couldn't do anything.
+
+    ***
