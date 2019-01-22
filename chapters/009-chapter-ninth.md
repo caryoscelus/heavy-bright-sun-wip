@@ -30,11 +30,18 @@ phrase Orpheus said was one of the lines by an early NPC. I was really quite
 surprised he still remembers it that well. But then again, he spent a lot of
 time rehearsing it.
 
-Sasha abruptly stopped talking to take care of a sudden problem on the road. At
-the moment we were driving through the relatively small forest belt separating
-the town into "old" and "new" parts as i learned from map some time later. And
-on this narrow forest road there was a car abandoned perpendicularly, that we
-had to bypass on the opposite line.
+Sasha abruptly stopped talking to take care of a sudden problem on the road. We
+were driving through the relatively small forest belt separating (as i learned
+some time later) the town into "old" and "new" parts; and on this narrow forest
+road a car was abandoned perpendicularly, so we had to bypass it on the opposite
+line.
+
+As we passed by it, i kept staring at this strange situation that appeared out
+of nowhere and was probably going to return there a couple turns later. The car
+wasn't damaged or even all that old by local standards. The most peculiar thing
+about it was that its windows were wide open.
+
+Despite all that Sasha seemed to not treat the car as anything but an obstacle.
 
 — Huh, so that's how it is, — i finally replied to her explanation after we
 ended that maneuver.
@@ -42,7 +49,8 @@ ended that maneuver.
 — Yeah. Honestly, i have no idea why am i even telling you this. It would
 probably have been better preserved as inner joke.
 
-Our conversation died at that and next five or so minutes we drove in silence.
+Our conversation died at that and next five or so minutes we drove on in
+silence.
 
     ***
 
@@ -55,19 +63,18 @@ It could have, but nobody watched it. Nobody. Ever.
 
 Watching winter dawn from the pedestrian bridge over railway station wasn't
 something i had been doing very often. As a matter of fact, that day it was the
-first time i did so. The picture was pretty impressive.
+first time i did so. The scenery was impressive to say the least.
 
 It wasn't the stereotypical "first sun rays emerged from the red horizon and lit
-the surroundings" or whatever is usually said about such occasions. In fact, we
+the surroundings" thing, or whatever is usually said about such occasions. We
 did not see neither sun nor its rays at all: the eastern sky was filled with
-clouds.
+clouds. They weren't too thick though; and the change from dark grey to yellowish
+grey to pink to bright yellow was beautiful.
 
-Still, those clouds weren't too thick and the change from dark grey to yellowish
-grey to pink to bright yellow was beautiful. And yet another thing was the
-ghost-looking town awakening. Old multi-storey apartment buildings first looked
-like simple black shadows, with only few lit windows. Then they started to turn
-grey, light in windows flipping on and off. And as they turned grey, their true
-state started to show.
+And yet another thing was the ghost-looking town awakening. Old multi-storey
+apartment buildings first looked like simple black shadows, with only few lit
+windows. Then they started to turn grey, light in windows flipping on and
+off. And as they turned grey, their true state started to show.
 
 I wouldn't have been surprised if i would be told that town had been hit by war.
 Buildings were visibly disintegrating, some apparently abandoned, with empty
@@ -139,17 +146,19 @@ neighbour.
 — Oh yeah, i did. Had a few troubles with that damn bird.
 
 I put right hand into the inner pocket of my jacket and after a bit of search
-took a piece of paper out of it that looked like an old school shop cheque.
+took a piece of paper out of it that looked like an old school shop cheque. A
+few pencil marks were made on top of it. I took extra effort to make them
+readable, so instead of my usual free-flowing cursive it contained a bad parody
+of regular typed script.
 
-— "????", — i said, — original edition, of course.
+— Inferno, nineteen one-fifteen, — i pronounced missing part of the message.
 
 Blue took the paper and inspected it curiously.
 
 — Interesting way of doing business you have indeed, — he said, pocketing the
-precious thing, — Do you always use such rare ones?
+precious thing, — Do you always use such old ones?
 
-— At the very least i use those whose authors had been dead for at least seventy
-years.
+— I only use those whose authors had been dead for at least seventy years.
 
 — The rumors about your humor were certainly unexaggerated.
 
@@ -162,10 +171,10 @@ bothering me for a while.
 Everybody knows Sasha in these parts. And as much as i don't like trusting
 famous people, i have no doubts about her.
 
-— And, — Sasha added, — despite Синий is not as famous as me, i'm well informed
+— And, — Sasha added, — despite Синий is not as famous as me, i'm informed well
 enough to know him.
 
-And so the pieces of the puzzle started to fall in place.
+And so the pieces of puzzle started to fall in place.
 
     ***
 
