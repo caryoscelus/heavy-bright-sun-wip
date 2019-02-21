@@ -3,9 +3,10 @@
 
 Sitting in a comfortable seat of an air charter flying across continent, i tried
 to forget about the cold harsh reality of outside world that laid both in the
-past and the future of that unexpected flight. Well, sometimes i think that, on
-the contrary, it is those moments of relaxation and thinking that are reality,
-and the rest of my life is not much different from a film or a video game.
+past and in the future of that unexpected flight. Well, sometimes i think that,
+on the contrary, it is those moments of relaxation and thinking that are
+reality, and the rest of my life is not much different from a film or a video
+game.
 
 But how much of this is really worth considering and how much of it is just
 playing with language? Useless question.
@@ -22,7 +23,7 @@ The raising sound of the engine.
 
 Flap-flap-flap---ta-ta-ta---zhzhzh
 
-The sound of the ???? chopping the air.
+The sound of ??? blades chopping the air.
 
 ????
 
@@ -72,11 +73,11 @@ shortly after i was admitted into helicopter flying school.
 
     ***
 
-Somehow, i ended up daydreaming again. The cabin is still as red and empty as it
-was. I tuned the engine noise back in. Of course, it sounded alien. But
-otherwise it sounded as if everything was normal. I turned to the windows and
-opened luxury velvet shades. The world outside turned out to be unnaturally
-white.
+Somehow, i ended up daydreaming again. The cabin was still as red and empty as
+it was before. I tuned the engine noise back in. Of course, it sounded
+alien. But otherwise it sounded as if everything was normal. I turned to the
+windows and opened luxury velvet shades. The world outside turned out to be
+unnaturally white.
 
 — How nice! We can pretend we're left all alone in the world, can't we, Izzy? Or
 would you prefer to entertain the idea that we were alone always?
@@ -152,8 +153,7 @@ He didn't reply "as you wish", but his silence seemed to suggest as much. No one
 spoke for a while. Then it occurred to me that there is no apparent reason for
 Blue's visit. Did he really come just for the small talk?
 
-— Actually, i did want to ask you something, — suddenly, he answered my
-thoughts.
+— Actually, i did want to ask you something, — suddenly he answered my thoughts.
 
 — Well, i didn't expect a man like you to visit me for no reason at all.
 
@@ -190,7 +190,7 @@ about some nonsense on ten kilometer altitude. If you tend to choose books over
 other activities you find pleasant, we can say you like them.
 
 — That's a bit too generic, don't you think? Have you thought about
-informativeness of choice? Alice might choose books every time simple because
+informativeness of choice? Alice might choose books every time simply because
 her friends always have a nice one to recommend, but they don't recommend any
 movies. Her friend Bob has spent a lot of time consuming various forms of media
 and then concluded he gets max fun from reading. And, for the sake of it, Cecil
@@ -212,4 +212,23 @@ You're probably doing enough considerations already.
 — What do you even know about me?
 
 — But i guess we didn't have to go on that tangle, — he ignored my line and
-returned to the "books" topic, — More or less, i understand your attitude.
+returned to the "books" topic, — More or less, i understand your attitude. Isn't
+it kinda hilarious that people still write "books", though? Some actually still
+print them, but even setting that aside, isn't it a form that continues dying
+for far too long?
+
+— Why books, though? Traditionalist relationships, religions, politics — our
+life is shaped by things which are hopelessly outdated. Besides, books still
+have one of the biggest potential at being auteur. You'd need pretty strong AI
+to build story that reflects author's intention as precise in other media.
+
+— Is that so? One could say being "auteur" is an outdated concept in itself, but
+i guess that would always be a matter of opinion... I would even like to agree
+with your "everything outdated" concept, but then isn't that also natural? Ideas
+may spread slowly to our tastes, but compared to biological evolution, they are
+actually blazing fast.
+
+— Well, any comparative statement is useless if we allow ourselves to freely
+change point of view.
+
+— 
