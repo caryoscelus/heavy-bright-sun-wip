@@ -12,10 +12,10 @@ other business to attend.
 
 — It was a pleasure to work with you.
 
-And after a few more lines of too polite goodbyes we finally parted our ways.
-That is, Blue remained on the platform to wait for a train and i went back into
-the town. Sasha followed me, without asking anything until we went far enough
-away. Then she finally said:
+And after a few more lines of annoyingly polite goodbyes we finally parted our
+ways.  That is, Blue remained on the platform to wait for a train and i went
+back into the town. Sasha followed me, without asking anything until we've gone
+away far enough. Then she finally said:
 
 — So you actually do have some business in our town?
 
@@ -46,9 +46,10 @@ little square near the station on the side we just left, — Isn't there nothing
 but rural outskirt where we are going?
 
 — I suppose that's true. But there's one small detail. There is a highway there
-and that's where we are heading to. See, the center is for this town's people.
-And as tiny as it is, the shop on gas station is for "outsiders". And there's a
-long-standing tradition that outsiders deserve the best.
+and that's where we are heading to. See, the center, however cultural you may
+call it, is for this town's people.  And as tiny as it is, the shop on gas
+station is for "outsiders". And there's a long-standing tradition that outsiders
+deserve the best.
 
 — Tradition?
 
@@ -83,7 +84,7 @@ it then continued again.
 — Два горячих кофе и пачку эклеров, — Sasha ordered in the gas station shop and
 then turned to me, — You don't mind sweets, do you?
 
-— Sure. I'd take black coffee though, if there's a choice, — i answered
+— Sure. I'd take black coffee though, if there's a choice, — i answered.
 
 — Кофе-то какой? — asked her a woman voice from the other side of the glass
 counter filled with products.
@@ -128,7 +129,7 @@ youth is over for me.
 tell. You certainly don't look like a boring adult who returns home after work,
 lies on couch and complains about life while watching sports.
 
-— Well, you just described the perfect image of what i'd hate to live, so
+— Well, you've just described the perfect image of what i'd hate to live, so
 obviously i did everything in order to prevent that happening to me. Really, you
 shouldn't take my rants too seriously, i guess i just like to complain
 sometimes.
@@ -174,7 +175,7 @@ her, she spoke first.
 would be in a mood to tell about your business here?..
 
 — Heh, you're pretty persistent, aren't you. As i said, it's a long story. And i
-gotta say my throat is pretty tired of talking in a cold over a highway noise
+gotta say my throat is pretty tired of talking in the cold over a highway noise
 background. So if you're sure you need to know this, lets find a calmer place.
 
 — A calmer place, huh? We can return to the Orpheus' place, if you'd like. That
