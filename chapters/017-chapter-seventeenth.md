@@ -160,3 +160,8 @@ stupid world to hell and leave all the troubles to whoever didn't dare. But then
 i couldn't. Couldn't do anything.
 
     ***
+
+Sustainability of the Source was put under question. It was, indeed, doubtful
+that anyone could achieve something grandiose like that. And yet the scientists
+kept trying, keep trying today and will probably keep trying forever, or rather
+until life puts their efforts under its own question.
