@@ -46,7 +46,7 @@ that my vengeance was really over. I took a deep breath and calmed myself.
 *journalist*, in the end.
 
 — Ah yeah.. Information leaks, — i paused, — So, now you know. I contracted Blue
-to kill that guy. But before i continue i need another cup of some caffeinated
+to kill that guy. But before i continue i need another cup of caffeinated
 beverage.
 
     ***
@@ -58,9 +58,9 @@ And then!..
     ***
 
 — So then, — i sipped strong black tea and continued, — you must be wondering
-who this Andrey Portnov is. Well, as you might have seen, he just was a senator
-or something. But how do i happen to know a senator in these parts? Or maybe you
-think i'm just a proxy contractor?
+who this Andrey Portnov is. Well, as you might have seen, he was a senator or
+something like that just recently. But how do i happen to know a senator in
+these parts?  Or maybe you think i'm just a proxy contractor?
 
 — You might be, for all i know. But i suppose you'd be more secretive in that
 case.
@@ -85,6 +85,9 @@ of those flying fans. He acted like one anyway. Had a big collection of assorted
 copter and jet figurines, was boasting some prestigious pilot sims
 awards. Typical otaku who had the guts to go irl, that's what we thought of him.
 
+This was all i could easily say about my impressions of him. After a short
+pause, i continued my slightly chaotic thoughts.
+
 — It probably sounds banal, but we all had meals together, fought together...
 Nobody would think he would be a traitor. But then can you call someone who was
 never really on your side a traitor? He worked for Agency from the day zero, as
@@ -96,8 +99,7 @@ wasn't a good time to start anyway.
 
 — I thought i'd be able to talk about him now, after all these years, — i said
 with bitter irony, — but apparently those memories never fade. Let me be brief
-then. Portnau sold our squadron to the Agency, sending us onto a suicide
-mission; he didn't expect anyone to return. But, well, i did...
+then.
 
     ***
 
