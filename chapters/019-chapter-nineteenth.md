@@ -1,99 +1,147 @@
-Sasha papers, pt I
-------------------
+Sasha papers, pt II
+-------------------
 
-"There is a certain similarity between fanfiction and journalism: you need to
-write stories in a pre-existing setting."
+Yo, i'm back. Didn't expect me to continue my rambles? Well, i've gotta
+disappoint you: i have too much spare time on my hands. All because my promised
+adventures still haven't really started, i suppose.
 
-And who do you think came up with such a quote? Me, of course! Why am i putting
-it as an epigraph, then? Because i'm a self-complacent smug, that's why!
-
-Really, to hell with fanfics and journalism (which i have been indulging for
-more than half of my life now), i'm going to write a story about my glorious
-self. Are you prepared? No? I don't really care.
-
-...
-
-So then, lets start. As i write this, i'm sitting in an interplanetary ship
-headed for—— aww, wait a second, i said i won't be writing fanfic this time. So
-lets get back to reality: i'm sitting in a distressingly old suburban train.
-It's past ten in the evening and i'm starting to feel sleepy, but it's still
-more than an hour before my destination. Well, i suppose i can blame myself for
-choosing such transportation.
-
-Anyway, i tried to look through the window, but it's too dark to be
-interesting. Then i looked at the passengers, but i just wasn't in the mood for
-that. And that's how i picked up my laptop and ended up writing this stuff. I
-guess it's just my old habit: write when i have nothing better to do (have i
-told you i ended up being professional journalist that way? Well, now i have).
-
-Interestingly enough i hadn't been writing about myself, at least not in recent
-years. Even if it was quite often that i gave my characters or plot one or two
-details from my life at the moment. I suppose being observant is a good
-replacement for having a good imagination.
-
-So then why am i suddenly doing this ramble about myself? There should be a
-reason!
+If you're still wondering about my whereabouts, now i'm at a
+not-very-fashionable hotel in this boring megapolis (wait wut? there's no such
+word in english dictionary? do i have to write "megalopolis" to get rid of that
+annoying spellcheck warning? aww, the world is unfair).
 
 ...
 
-Well, the reason, i suppose, would be that i have this nice feeling about the
-moment (and myself in it). How should i put it? "I've decided to become a new
-person and that went better than expected"? Naw, that sounds too dumb even for a
-supposedly lightheaded me.
+What am i doing here? That was the question i asked myself a few times this
+morning and never found out the answer. Perhaps i considered that the denser
+population the more chances to get into an adventure?..
 
-So i guess i should go into a bit more details.
-
-My streak of good mood started yesterday afternoon when i finished my last
-article (and don't ask me what it was about: i don't even want to think about it
-right now) and sent it off. Then, while i was dancing myself off on the poor old
-floor, the payment came. I've become so overjoyed that i just couldn't stop
-myself from celebrating it with a little joint.
-
-So while i was high, the idea came to me that at this point i can stop taking
-any further jobs and head for an *adventure* instead. And so i picked a random
-direction, packed up my laptop and a few other useful things and rode off on a
-first train. Incidentally, it's a bit annoying that english has no single word
-for what we call "электричка". That reminds me, why am i even writing in
-english?..
-
-Here are a few versions:
-
-* i don't want for other passengers to understand what i'm writing
-
-* i'm tired of having to write in russian for work
-
-* i chat way too much in english on the internets
-
-Satisfied? If not, send me your suggestions, i'm always open.
+Who knows, maybe that's wrong and i should consider the opposite idea? Go out
+into wilderness with zero population... Yeah, that would totally be an
+adventure. Just not the kind i'm looking for.
 
 ...
 
-Ha-ha, i hope you have your salt grains prepared. But don't worry, most of what
-i say is the truth. You can trust me on this one.
+Gotta keep this thing fun.
+
+Gotta keep this thing fun.
+
+Gotta keep this thing fun.
 
 ...
 
-So then, today i arrived in a random town, walked around and got on the train
-again, all the while occasionally giggling at nothing in particular. And now
-i'm here.
+And how am i supposed to keep it fun without that adventure? Sure thing, i can
+tap on my connections and meet some criminal authorities or something, but that
+would be cheating.
 
-I guess that'll pass for the explanation of current affairs. Meanwhile, the
-train is getting near the final station, yay! Now i need to wrap this up. Should
-i call the thing i wrote today a first chapter? Bah, when i write my fanfics my
-chapters are like at least five times longer.
+"Sasha, when did you decide on such rigid rules?", an old-teacher-like voice
+asks.
 
-...
-
-Really though, i don't know how to wrap it up. Should i write about my grand
-future plans? Should i just leave my sign here?
-
-Nah, writing plans would take too much time and if someone like you happens to
-read this, they should already know who am i. Or no; who cares?
-
-I can go for an epic ending: "and now from myself of today, to myself of the
-days to come, i shall say: blah-blah-blah", but as you might have expected i'm
-not in the mood.
+"They aren't rigid, i just came up with this on the spot", i reply.
 
 ...
 
-So yeah, see you in the next one, i guess?
+Ok, so at this point this random travel might end up without anything exciting
+happening. Lets just admit that and live with it.
+
+And since going in random directions doesn't help and staying in this
+"megalopolis" or whatever the fuck it should be called doesn't help either, i
+can as well plan to visit my hometown. If i can't have real adventures, i can at
+least play one with friends.
+
+Yeah, considering the S.T.U.F.F. is coming out, it might be not a bad idea at
+all. Not at all a bad idea. At all a bad idea not—— No, i must stop myself,
+there are way too many permutations.
+
+...
+
+Ok, let me make a few calls and send a few messages and i'll be back.
+
+...
+
+So, i've contacted my old friend Orpheus and he happily invited me to a party.
+What a coincidence! He's planning a party just at the time i want to visit him.
+I guess maybe i underestimated this boring reality in the end. We'll see.
+
+...
+
+I've still got a few more days here to kill, though. So i should probably
+continue my rambling while i still can.
+
+Ah, but it is not so easy to write about myself in this boring hotel room, as it
+was in that suburb train. Maybe i should go out and find a better place to write?
+But then it's pretty cold outside...
+
+Aww, crap, doesn't matter. I'm too bored in these four walls.
+
+...
+
+And... i'm back. Back to writing, that is, not back to my room. I decided that
+writing out would indeed be a better thing and did the most obvious thing: went
+into a random cafe, ordered a coffee and a big choco ice-cream and opened my
+laptop.
+
+The cafe is almost empty, so i got my stuff pretty soon. And hey, it's
+surprisingly tasty, too!
+
+Hmm, it's a pity i'm not doing an illustrated book. Otherwise posting food
+photos would be a very appropriate way to fill some space.
+
+"But, it's such a bad taste, Sasha!", the teacher returns.
+
+"You don't understand anything. Bad taste is the whole point here"
+
+...
+
+Are you wondering who is that teacher now? Please, don't embarrass yourself!
+
+...
+
+Lets talk about the waiters here. The one who attended me was a sleek young man
+with a slightly careless haircut (just between me and you, i know perfectly well
+how those "careless" are made and how they cost more than something more
+official).
+
+He certainly has a certain beauty (no, i refuse to use that stupid "handsome"
+word!), but there's something bland in his eyes. Good for a glamour journal, but
+not really all that interesting. Or at least, so he looks. It's not like i
+actually talked to him or something.
+
+Then, there's a short, somewhat clumsy waitress who walked past me a few times.
+She's attending that business-bandit-looking old man. I wouldn't be surprised if
+he called her just to enjoy the view, for she is quite cute.
+
+...
+
+Hmm, should i hit on her? What do you think?
+
+Yes, you, you, reader! Should i do it? Would you be entertained by that? Or
+maybe bored? I've no idea whether you even like romance, let alone some random
+lesbian encounters in cafe.
+
+...
+
+Ah well, sorry do disappoint you, but i'm not really in the mood. As much as i'm
+trying to pretend to be outgoing, deep inside i'm not the type to flirt with
+someone i don't especially like and just find attractive.
+
+So yeah, lets just order one more coffee and be off with it. I suppose i'm going
+to write enough for today by that point.
+
+...
+
+What else is there in this cafe? Yeah, i suppose you might be interested, if you
+are at all interested in my so called adventures.
+
+Let me see. On a first glance, it's a quintessence of a modern cafe trying hard
+to look older than it is. I suppose interior designer described their work as
+"Victorian", but in reality everything here shouts to you that it came fresh
+from a fully-automatic plant that could only be fantasized about in Victorian
+era.
+
+And that's about it. Aww, i'm bad at describing surroundings, ain't i?
+
+...
+
+Whatever, my coffee has ended and i'm beginning to feel bored here. Lets hit the
+road.

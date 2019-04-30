@@ -1,153 +1,99 @@
-Chapter Fifteenth
------------------
+Sasha papers, pt I
+------------------
 
-When i woke up, i found myself still in the same cabin, but the curtains were
-already closed and the light was turned on. Somewhere in the distance, Sasha and
-Ivan were discussing something in low voices. I stretched my body and got up.
+"There is a certain similarity between fanfiction and journalism: you need to
+write stories in a pre-existing setting."
 
-— And why are you waking up at such a time of day, Izzy? — i mumbled to myself.
+And who do you think came up with such a quote? Me, of course! Why am i putting
+it as an epigraph, then? Because i'm a self-complacent smug, that's why!
 
-Me had no chance to answer though.
+Really, to hell with fanfics and journalism (which i have been indulging for
+more than half of my life now), i'm going to write a story about my glorious
+self. Are you prepared? No? I don't really care.
 
-— Hey, Bella? Did you get up? — asked Sasha, noticing my awakening.
+...
 
-Suddenly, a hazy memory came back to me, but only for a brief moment.
+So then, lets start. As i write this, i'm sitting in an interplanetary ship
+headed for—— aww, wait a second, i said i won't be writing fanfic this time. So
+lets get back to reality: i'm sitting in a distressingly old suburban train.
+It's past ten in the evening and i'm starting to feel sleepy, but it's still
+more than an hour before my destination. Well, i suppose i can blame myself for
+choosing such transportation.
 
-— Oh yeah, it seems that i made this mistake, — i answered, yawning.
+Anyway, i tried to look through the window, but it's too dark to be
+interesting. Then i looked at the passengers, but i just wasn't in the mood for
+that. And that's how i picked up my laptop and ended up writing this stuff. I
+guess it's just my old habit: write when i have nothing better to do (have i
+told you i ended up being professional journalist that way? Well, now i have).
 
-— Well, we wouldn't mind if you'd stay there for an hour or two more.
+Interestingly enough i hadn't been writing about myself, at least not in recent
+years. Even if it was quite often that i gave my characters or plot one or two
+details from my life at the moment. I suppose being observant is a good
+replacement for having a good imagination.
 
-— Maybe you wouldn't, but i've got things to do.
+So then why am i suddenly doing this ramble about myself? There should be a
+reason!
 
-— Ah yeah, your business. Maybe it's finally time to talk about it?
+...
 
-— Maybe, maybe. Perhaps we should start with the local media though.
+Well, the reason, i suppose, would be that i have this nice feeling about the
+moment (and myself in it). How should i put it? "I've decided to become a new
+person and that went better than expected"? Naw, that sounds too dumb even for a
+supposedly lightheaded me.
 
-— Media, huh? Does it have anything to do with Blue?
+So i guess i should go into a bit more details.
 
-— Oh yeah. I'm wondering if it already hit the news.
+My streak of good mood started yesterday afternoon when i finished my last
+article (and don't ask me what it was about: i don't even want to think about it
+right now) and sent it off. Then, while i was dancing myself off on the poor old
+floor, the payment came. I've become so overjoyed that i just couldn't stop
+myself from celebrating it with a little joint.
 
-— Okay, let me see...
+So while i was high, the idea came to me that at this point i can stop taking
+any further jobs and head for an *adventure* instead. And so i picked a random
+direction, packed up my laptop and a few other useful things and rode off on a
+first train. Incidentally, it's a bit annoying that english has no single word
+for what we call "электричка". That reminds me, why am i even writing in
+english?..
 
-Sasha turned to a laptop sitting comfortably on her lap and started
-typing. Tap-tap... Tap-tap.. Sounds of keyboard reminded me of something, but
-then Sasha interrupted.
+Here are a few versions:
 
-— Hmm, Andrey Portnov.. was found strangled to death in a hotel number, that's
-it?
+* i don't want for other passengers to understand what i'm writing
 
-For some reason these words that were but a translation of some apathetic,
-written without even pretense of human sympathy, article finally made me realize
-that my vengeance was really over. I took a deep breath and calmed myself.
+* i'm tired of having to write in russian for work
 
-— They sure are fast. I'd think they wouldn't announce it today.
+* i chat way too much in english on the internets
 
-— Well, they haven't, yet. I'm just reading insider news channel. I'm
-*journalist*, in the end.
+Satisfied? If not, send me your suggestions, i'm always open.
 
-— Ah yeah.. Information leaks, — i paused, — So, now you know. I contracted Blue
-to kill that guy. But before i continue i need another cup of caffeinated
-beverage.
+...
 
-    ***
+Ha-ha, i hope you have your salt grains prepared. But don't worry, most of what
+i say is the truth. You can trust me on this one.
 
-Something drips... and drips... and keeps dripping. Shadows fall.
+...
 
-And then!..
+So then, today i arrived in a random town, walked around and got on the train
+again, all the while occasionally giggling at nothing in particular. And now
+i'm here.
 
-    ***
+I guess that'll pass for the explanation of current affairs. Meanwhile, the
+train is getting near the final station, yay! Now i need to wrap this up. Should
+i call the thing i wrote today a first chapter? Bah, when i write my fanfics my
+chapters are like at least five times longer.
 
-— So then, — i sipped strong black tea and continued, — you must be wondering
-who this Andrey Portnov is. Well, as you might have seen, he was a senator or
-something like that just recently. But how do i happen to know a senator in
-these parts?  Or maybe you think i'm just a proxy contractor?
+...
 
-— You might be, for all i know. But i suppose you'd be more secretive in that
-case.
+Really though, i don't know how to wrap it up. Should i write about my grand
+future plans? Should i just leave my sign here?
 
-— Yeah, i suppose so. I don't even know why am i so carefree lately, — that was
-what i said, but deep in my mind i already had a more or less coherent
-understanding of why was i so. I accomplished my goal and, on one hand, had no
-need to be careful anymore; on the other, i wanted to celebrate, to relax. But
-then on the third hand, there perhaps was still a hint of mystery in that.
+Nah, writing plans would take too much time and if someone like you happens to
+read this, they should already know who am i. Or no; who cares?
 
-— Anyway, i suppose you can look up the guy's biography, — i continued, — He
-claims to be russian immigrant descendant. And i suppose that might be true.
-But back in the day when i knew him, he called himself Andrew Portnau and wasn't
-very eager to discuss his ancestors, to say the least.
+I can go for an epic ending: "and now from myself of today, to myself of the
+days to come, i shall say: blah-blah-blah", but as you might have expected i'm
+not in the mood.
 
-I took a few more sips of tea, making a pause to hide my emotions towards my
-freshly dead enemy.
+...
 
-— He always strove for power, but i noticed the terrible proportions of his
-desire way too late. When he had come to our squadron, we all thought he was one
-of those flying fans. He acted like one anyway. Had a big collection of assorted
-copter and jet figurines, was boasting some prestigious pilot sims
-awards. Typical otaku who had the guts to go irl, that's what we thought of him.
-
-This was all i could easily say about my impressions of him. After a short
-pause, i continued my slightly chaotic thoughts.
-
-— It probably sounds banal, but we all had meals together, fought together...
-Nobody would think he would be a traitor. But then can you call someone who was
-never really on your side a traitor? He worked for Agency from the day zero, as
-he later admitted.
-
-Dark memories flooded my brain, almost making me want to vomit. But i've never
-had the ability to actually physically vomit from psychological trauma; it
-wasn't a good time to start anyway.
-
-— I thought i'd be able to talk about him now, after all these years, — i said
-with bitter irony, — but apparently those memories never fade. Let me be brief
-then.
-
-    ***
-
-"I created this monster. I wanted it to be strong. I have no reasons to blame
-anybody, but myself."
-
-Having said that, the monster fighter started their last, unequal, hopeless
-fight.
-
-    ***
-
-...After finishing my story, i leaned back; a bad feeling in my mouth reminded me
-of an even earlier memory: my first cigarette in the school backyard. I laughed
-at the thought that the shy girl trying to look cool and then afraid of coughing
-out her lungs was also me. Or perhaps just imagined laughing, for i didn't
-actually hear the sound.
-
-It was only then that i noticed that Ivan has silently disappeared. It must have
-been boring to listen to foreign speech indeed. Sasha seemed to be fascinated by
-the story, though she said nothing and i couldn't be sure about her reaction
-from her appearance.
-
-Sounds of slow freight train that had been crawling around for a while suddenly
-caught my attention. I wondered what will happen if i walk away and sit down on
-one of its flatcars. "Perhaps i would be caught and prosecuted, or maybe nobody
-cares about this stuff anymore?"
-
-I contemplated those stray thoughts for a few long moments, then tried to stop
-being so depressive, then, after a few more seconds of hesitation, got up.
-
-— Well, should we go then? — i tried to sound as bright as possible, — Or,
-perhaps, now that you know the story, it's a good moment to stop following me?
-
-— Sorry, but you won't get rid of me that easily. Besides, i've just mailed my
-clients that i won't be available for a while.
-
-— Heh, it's not like i mind, — i wanted to add "as long as you help me out, i
-don't care what your motives are", but then decided against it. Unfinished, the
-end of my phrase stuck uncomfortably in the air.
-
-Half a minute passed, measured by a few last wagons clapping on the rails. When
-the sounds of train finally started to fade away, Sasha broke uneasy silence:
-
-— We can go now, if you'd like, but do you have any idea of her whereabouts?
-
-— She is quite a shady person, so it would be hard to be hundred percent sure,
-but according to my research she likes to spend days at one of her winter
-residences. "Sunny Valley", that was the name i think. The one that isn't far
-from here. Without additional info i thought to start from there.
-
-— "Sunny Valley", huh. Well, maybe i can get some more info.
+So yeah, see you in the next one, i guess?

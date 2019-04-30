@@ -1,167 +1,153 @@
 Chapter Seventeenth
 -------------------
 
-— My sit! My sit is taken! I demand a refund! — in the dark park alley, lit only
-by sparse blinking street lights, a person in a hood screamed silently. Fifty
-meters after, the complete refund was lying on the path, but it was still too
-dark for anybody to see it.
+When i woke up, i found myself still in the same cabin, but the curtains were
+already closed and the light was turned on. Somewhere in the distance, Sasha and
+Ivan were discussing something in low voices. I stretched my body and got up.
+
+— And why are you waking up at such a time of day, Izzy? — i mumbled to myself.
+
+Me had no chance to answer though.
+
+— Hey, Bella? Did you get up? — asked Sasha, noticing my awakening.
+
+Suddenly, a hazy memory came back to me, but only for a brief moment.
+
+— Oh yeah, it seems that i made this mistake, — i answered, yawning.
+
+— Well, we wouldn't mind if you'd stay there for an hour or two more.
+
+— Maybe you wouldn't, but i've got things to do.
+
+— Ah yeah, your business. Maybe it's finally time to talk about it?
+
+— Maybe, maybe. Perhaps we should start with the local media though.
+
+— Media, huh? Does it have anything to do with Blue?
+
+— Oh yeah. I'm wondering if it already hit the news.
+
+— Okay, let me see...
+
+Sasha turned to a laptop sitting comfortably on her lap and started
+typing. Tap-tap... Tap-tap.. Sounds of keyboard reminded me of something, but
+then Sasha interrupted.
+
+— Hmm, Andrey Portnov.. was found strangled to death in a hotel number, that's
+it?
+
+For some reason these words that were but a translation of some apathetic,
+written without even pretense of human sympathy, article finally made me realize
+that my vengeance was really over. I took a deep breath and calmed myself.
+
+— They sure are fast. I'd think they wouldn't announce it today.
+
+— Well, they haven't, yet. I'm just reading insider news channel. I'm
+*journalist*, in the end.
+
+— Ah yeah.. Information leaks, — i paused, — So, now you know. I contracted Blue
+to kill that guy. But before i continue i need another cup of caffeinated
+beverage.
 
     ***
 
-Does racing old cars on winter road in the middle of night counts as extreme
-sports or as extravagant suicide method? Perhaps, a bit of both. It is also not
-very safe for late bystanders and stray cars on steep turns. A small memorial
-with cross and undead flowers — a very material, if not living, proof of these
-dangers, — was highlighted by headlights of our speeding sedan for a few moments
-before disappearing back into eternal darkness.
+Something drips... and drips... and keeps dripping. Shadows fall.
 
-— Here lies the last mayor of that wrecked town, — Sasha commented in a
-surprisingly calm voice, — Or whatever left of his remains, anyway.
-
-Barely managing to handle ancient controls of quickly moving vehicle, i barely
-registered meaning of her words and had no time to reply. Few seconds later, our
-car jumped up on a road bump, and the remnants of the lingering question "why"
-in my head had disappeared altogether.
-
-But Sasha continued nevertheless.
-
-— He didn't *really* die in the car accident though. Well, his body did,
-but.. they killed off about ninety-nine percents of his mind two hours before
-that happened.
-
-Sharp screeching of tires forced her to pause. I did a maneuver precise enough
-to be proud of, but we had no time for such feelings. Our competitors, only a few
-moments ago lost beyond a road turn, were quickly catching up.
-
-— Funnily enough, those rats who did it are already dead. They all fought for
-power, but when the shit had finally hit the fan, even the rat king fell by the
-hand of his bodyguard...
-
-I was getting a bit annoyed by Sasha's nonchalant attitude towards the more
-immediate dangers i was fighting. I wondered whether she is used to such kind of
-situations or simply have no fears. But yet again, i was much to busy driving to
-bring myself to reply anything.
-
-— For all the blood they spilled and bled though, it was an interesting time to
-be a journalist. Current dynamic equilibrium isn't as fun to watch. Maybe i
-should just drop the whole politics theme and join the glorious lines of tech
-adventurers?
-
-There seemed to be no end to this dark road filled with deathly turns and
-bumps. I started getting tired of steering mechanical wheel and a bit worried
-that we might not live through this night. On a relatively easy part of the
-road, i finally brought myself to stop Sasha's rambling:
-
-— So, how much more is left till the city? — i wanted to also complain about our
-car lacking navigator, but then remembered it wasn't Sasha's one anyway.
-
-— Lemme see. There's going to be an abandoned gas station after a couple turns
-and then it's a straight line of five kilometers. But the Predators will not go
-all the way; you need to hang on just a bit after that station.
-
-— If you knew that much, why even go onto this fucked up road? — i could no
-longer hide my irritation.
-
-— Well, it's not like there were viable alternatives. I'm not a big fan of
-roundabout ways. Besides, i trusted you could put this bad parody of racers to
-shame.
-
-— So you did plan it all along, — i sighted.
-
-— I took all the risks into account, that's all.
-
-Another sharp turn shook our car, forcing both of us to shut up for a while.
+And then!..
 
     ***
 
-Endless stream of small details across unlimited canvas. Infinite attempts to
-put them into limited order. Just as much tries to get uncaged experience out of
-it.
+— So then, — i sipped strong black tea and continued, — you must be wondering
+who this Andrey Portnov is. Well, as you might have seen, he was a senator or
+something like that just recently. But how do i happen to know a senator in
+these parts?  Or maybe you think i'm just a proxy contractor?
 
-All of this burned with approximately same amount of heat.
+— You might be, for all i know. But i suppose you'd be more secretive in that
+case.
 
-    ***
+— Yeah, i suppose so. I don't even know why am i so carefree lately, — that was
+what i said, but deep in my mind i already had a more or less coherent
+understanding of why was i so. I accomplished my goal and, on one hand, had no
+need to be careful anymore; on the other, i wanted to celebrate, to relax. But
+then on the third hand, there perhaps was still a hint of mystery in that.
 
-Despite i've been used to hi-tech control systems more similar to old-school
-racing game controls than to this twentieth century anachronism, my driver
-instincts still couldn't be matched by some third-grade dilettantes of violent
-racing. But no matter how good you are, in this world there are physical
-limitations unovercomeable by mere mortals.
+— Anyway, i suppose you can look up the guy's biography, — i continued, — He
+claims to be russian immigrant descendant. And i suppose that might be true.
+But back in the day when i knew him, he called himself Andrew Portnau and wasn't
+very eager to discuss his ancestors, to say the least.
 
-What Sasha didn't account for was the risk of getting outright rammed into by
-simply more powerful car with nitrogen boosters. Even if i could secure us a win
-in an honest race, there was nothing to do against this brute force. The only
-chance to get away we had was to make Predators crash before that gasoline
-station, when they were still playing competitive.
+I took a few more sips of tea, making a pause to hide my emotions towards my
+freshly dead enemy.
 
-But we had missed that chance. When the score was clear enough to understand
-their loss, they simply crashed into our car, sending already speeding sedan
-forward and then, attacking it from left, into the side of the road.
+— He always strove for power, but i noticed the terrible proportions of his
+desire way too late. When he had come to our squadron, we all thought he was one
+of those flying fans. He acted like one anyway. Had a big collection of assorted
+copter and jet figurines, was boasting some prestigious pilot sims
+awards. Typical otaku who had the guts to go irl, that's what we thought of him.
 
-I don't know whether this was pure luck or remains of my driving skills which
-saved us in the end. Our car scratched over a birch tree, losing a slice of its
-head along with the left door, and slowing down just enough to not kill us on
-the next impact into an old oak.
+This was all i could easily say about my impressions of him. After a short
+pause, i continued my slightly chaotic thoughts.
 
-Meanwhile, predators pulled the brakes and smashed into another tree. Even if
-they could just go forward, slow down and return to catch us, they weren't
-cool-headed enough to do that. Like classical adrenaline junkies, they were
-willing to put lives on the line, both others' and their own. And as if that
-wasn't enough, their driver also indulged in substance abuse most of the time
-outside of vehicle.
+— It probably sounds banal, but we all had meals together, fought together...
+Nobody would think he would be a traitor. But then can you call someone who was
+never really on your side a traitor? He worked for Agency from the day zero, as
+he later admitted.
 
-But i've only inferred such details some time later. Right after the crash, i
-was sitting shocked, my head pushed into an emergency pillow and my head filled
-with thoughts of terror and relief at the same time.
+Dark memories flooded my brain, almost making me want to vomit. But i've never
+had the ability to actually physically vomit from psychological trauma; it
+wasn't a good time to start anyway.
 
-Of all four of us, Sasha was the first to move. After looking at my sorrow, but
-alive state, she kicked the right door open and crawled outside with a weak
-smile on her face.
-
-— Looks like we're gonna need to borrow another car, — she said after looking
-critically at the wreck that we've just been riding on.
+— I thought i'd be able to talk about him now, after all these years, — i said
+with bitter irony, — but apparently those memories never fade. Let me be brief
+then.
 
     ***
 
+"I created this monster. I wanted it to be strong. I have no reasons to blame
+anybody, but myself."
 
-
-    ***
-
-To say that i wasn't used to extreme situations would of course be a lie, but i
-still remember the acute feeling of extreme annoyance at the occasion, only
-slightly diluted by fear. When immediate pressure of having to steer vehicle was
-over, my anger finally surfaced.
-
-"What the hell went wrong?" "How did we end in this mess?" Typical questions,
-which usually aren't even thought to this precision.
-
-And of course i knew the formal answers to these questions. I could go through
-the chain of events the night and find a causality for everything. But that
-wasn't satisfying at all. Faced with consequences of my past actions, i could
-see so many opportunities to fix it up; the fact that i couldn't foresee them
-was not an excuse, but rather a reason to blame myself.
-
-I didn't notice when i started to grind my teeth in a helpless rage. When i
-noticed, i realized that i had already spent too much time in a less than
-comfortable position in a crashed vehicle. Furthermore, situation was still far
-from being resolved. Getting rid of annoying safety pillow, i stumbled out of
-the car and unsteadily walked forward.
-
-It was dark. After a long night journey through the forest, i only now truly
-entered the real night, not lighten up by head- or emergency lights. After a few
-steps, the dim lights from the car disappeared and the only other source of
-light was dark cloudy sky. For a few moments i became engulfed in this darkness
-and thoughts on the present situation had completely drifted away.
-
-I was alone in the wild night forest.
-
-From here i could go anywhere. Nobody would find me. I could just send the whole
-stupid world to hell and leave all the troubles to whoever didn't dare. But then
-i couldn't. Couldn't do anything.
+Having said that, the monster fighter started their last, unequal, hopeless
+fight.
 
     ***
 
-Sustainability of the Source was put under question. It was, indeed, doubtful
-that anyone could achieve something grandiose like that. And yet the scientists
-kept trying, keep trying today and will probably keep trying forever, or rather
-until life puts their efforts under its own question.
+...After finishing my story, i leaned back; a bad feeling in my mouth reminded me
+of an even earlier memory: my first cigarette in the school backyard. I laughed
+at the thought that the shy girl trying to look cool and then afraid of coughing
+out her lungs was also me. Or perhaps just imagined laughing, for i didn't
+actually hear the sound.
+
+It was only then that i noticed that Ivan has silently disappeared. It must have
+been boring to listen to foreign speech indeed. Sasha seemed to be fascinated by
+the story, though she said nothing and i couldn't be sure about her reaction
+from her appearance.
+
+Sounds of slow freight train that had been crawling around for a while suddenly
+caught my attention. I wondered what will happen if i walk away and sit down on
+one of its flatcars. "Perhaps i would be caught and prosecuted, or maybe nobody
+cares about this stuff anymore?"
+
+I contemplated those stray thoughts for a few long moments, then tried to stop
+being so depressive, then, after a few more seconds of hesitation, got up.
+
+— Well, should we go then? — i tried to sound as bright as possible, — Or,
+perhaps, now that you know the story, it's a good moment to stop following me?
+
+— Sorry, but you won't get rid of me that easily. Besides, i've just mailed my
+clients that i won't be available for a while.
+
+— Heh, it's not like i mind, — i wanted to add "as long as you help me out, i
+don't care what your motives are", but then decided against it. Unfinished, the
+end of my phrase stuck uncomfortably in the air.
+
+Half a minute passed, measured by a few last wagons clapping on the rails. When
+the sounds of train finally started to fade away, Sasha broke uneasy silence:
+
+— We can go now, if you'd like, but do you have any idea of her whereabouts?
+
+— She is quite a shady person, so it would be hard to be hundred percent sure,
+but according to my research she likes to spend days at one of her winter
+residences. "Sunny Valley", that was the name i think. The one that isn't far
+from here. Without additional info i thought to start from there.
+
+— "Sunny Valley", huh. Well, maybe i can get some more info.
