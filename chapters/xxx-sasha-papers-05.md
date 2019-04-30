@@ -32,6 +32,24 @@ leave this question as an exercise to the reader.
 
 For example:
 
+Who was the first to create this umbrella term "drugs" that doesn't make much
+sense, except maybe for pushing people into either being "clean" or "hardcore
+junkies"? Who benefits from that?
+
     ***
 
-Now why am i writing all of this here instead of telling my story?
+For example:
+
+Why do people keep on going with their lives, as if nothing happened? As if
+nothing is happening right now?
+
+    ***
+
+Now why am i writing all of this here instead of telling my story? Because the
+story came to a halt, to a point where my writing has caught up with the present
+and the present is not moving anywhere. Because i don't want to write about
+yesterday's accident, and writing about today's mundanity of waiting isn't going
+to be much fun either. Because, finally, i'm afraid, and that's not a feeling i
+want to put on this blog.
+
+I don't know what else to do, what to write about.
