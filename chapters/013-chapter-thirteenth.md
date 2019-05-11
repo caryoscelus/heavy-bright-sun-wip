@@ -24,7 +24,7 @@ i've seen the day before.
 Lets get acquainted.
 
 Even though she wanted to make us acquainted, she didn't bother to mention who
-was i. And it's not like i could give a satisfactory explanation myself.
+i was. And it's not like i could give a satisfactory explanation myself.
 
 — Bella, — i extended my hand. The old man looked at it hesitantly for a few
 seconds, but then finally understood the gesture and chuckled.
@@ -78,10 +78,10 @@ forever, as if it was working on nuclear energy or something.
 
     ***
 
-Having finished our tea, we sat like that in silence for a while. I could feel
-some tension and it wasn't hard to guess that it was my presence that caused it.
-But what could i do about it? It's not like i had anywhere to go, especially now
-that i finally started to feel terribly sleepy.
+Having finished our tea, we remained sitting in silence for a while. I could
+feel some tension and it wasn't hard to guess that it was my presence that
+caused it.  But what could i do about it? It's not like i had anywhere to go,
+especially now that i finally started to feel terribly sleepy.
 
 — Should we smoke some weed, perhaps? — suggested Sasha, apparently feeling the
 same tenseness in the air.
@@ -98,13 +98,14 @@ take lighter stuff, if you prefer.
 
 — Are you a secret drug dealer or something?
 
-— Eh, not really. It's not worth my time to sell stuff. So, how about it?
+— Eh, not really. It's not worth my time to sell stuff. But i've always got
+enough for me and my friends. So, how about it?
 
 — Well, if you insist. You'll have to deal with consequences if i drop asleep,
 though.
 
-— Don't worry, i've got experience, — she smiled and i felt a barely noticeable
-chill run through my spine.
+— Don't worry, i've got experience, — she smiled almost innocently, but i felt a
+barely noticeable chill run through my spine.
 
 — Well, i suppose i don't mind a joint then, — i replied reluctantly after a
 small pause.
