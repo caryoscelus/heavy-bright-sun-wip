@@ -123,12 +123,12 @@ the story, though she said nothing and i couldn't be sure about her reaction
 from her appearance.
 
 Sounds of slow freight train that had been crawling around for a while suddenly
-caught my attention. I wondered what will happen if i walk away and sit down on
+caught my attention. I wondered what will happen if i walk away and jump onto
 one of its flatcars. "Perhaps i would be caught and prosecuted, or maybe nobody
 cares about this stuff anymore?"
 
 I contemplated those stray thoughts for a few long moments, then tried to stop
-being so depressive, then, after a few more seconds of hesitation, got up.
+being melancholic; then, after a few more seconds of hesitation, got up.
 
 — Well, should we go then? — i tried to sound as bright as possible, — Or,
 perhaps, now that you know the story, it's a good moment to stop following me?
