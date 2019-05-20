@@ -231,4 +231,13 @@ actually blazing fast.
 — Well, any comparative statement is useless if we allow ourselves to freely
 change point of view.
 
-— 
+— Speak of correct, but useless statements..
+
+— "Speak of communication..", more like.
+
+— Oh, i don't even know what to add now.
+
+— Maybe you shouldn't?
+
+Finally, this strange conversation is put to a halt. Whatever mind games we were
+trying to play now enter a limbo.
