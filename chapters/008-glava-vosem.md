@@ -163,7 +163,7 @@ that i let you into my house at this hour. Кьсо, talk about kids these days.
 
 — What do you want anyways?
 
-— "Аната ни миттэру тамени" то юуно ва доо да?
+— "Аната ни аэру тамени" то юуно ва доо да?
 
 — Кьсо, маджимени щитэ. You have something to talk about, don't ya? You didn't
 like my latest editing, is that it?
