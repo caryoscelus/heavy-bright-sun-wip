@@ -23,7 +23,7 @@ The raising sound of the engine.
 
 Flap-flap-flap---ta-ta-ta---zhzhzh
 
-The sound of ??? blades chopping the air.
+The sound of copter blades chopping the air.
 
 ????
 
@@ -32,7 +32,7 @@ The sound of ??? blades chopping the air.
 My first flight. Not first flight ever, but rather first *my* flight. The time
 when i rule the air around. When a few worthless precious lives depend on me.
 When the decision whether this two ton machinery will continue functioning or
-not is mine and mine only.
+not is mine and mine alone.
 
     ***
 
@@ -67,7 +67,7 @@ forced myself to stop fearing.
 
 Or rather tried to. I made an ultimatum to myself. I vowed that i would keep
 constantly flying for five years if i wouldn't stop fearing by the end of the
-year. As could be expected, i didn't precisely define either "stop fearing" or
+year. As could be expected, i didn't precisely define neither "stop fearing" nor
 "constantly flying". I never ended up evaluating whether i passed the test. But
 shortly after i was admitted into helicopter flying school.
 
@@ -90,7 +90,7 @@ whole world. The world is ours alone. There is nobody, nobody, nobody else.
 Not the most unexpected thing to hear from yourself at such moments, i guess.
 
 — It is kinda weird, isn't it? Things that are supposed to happen, do happen.
-And all that's left to us is to watch them happening. You watch me talking to
+And all that's left for us is to watch them happening. You watch me talking to
 you, i watch you listening to me.
 
 Yeah, even then, even back then it was all the same. Flying through the fire,
