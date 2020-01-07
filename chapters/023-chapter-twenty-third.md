@@ -58,7 +58,7 @@ character. But much more nuanced and conflicted in real life. He certainly
 deserves a separate chapter (if not book) about him, but unfortunately my famous
 "omnipotence" is limited by time.
 
-And finally, of all those people there was one who i found the most interesting
+And finally, of all those people there was one whom i found the most interesting
 (and also attractive) and who is going to become an important character in my
 story. Her name is Isabella, or Bella for short.
 
